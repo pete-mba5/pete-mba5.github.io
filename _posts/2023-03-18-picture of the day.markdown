@@ -1,14 +1,13 @@
 ---
 layout: post
-title:  "Dis K by Kevin Hall"
-date:   2023-03-08 23:39:42 +0100
+title:  "Jump by Kevin Hall"
+date:   2023-03-19 21:27:42 +0100
 categories: jekyll update
 ---
-I tried to create Dis K robot from Kevin Hall book but due to the lack of the right parts I finished creating something similar but not that cute.
+Pretty well done. I could find all the parts quickly and assmebled it in a second.
 
-
-### Wed 2023.03.08
-![Dis K by Kevin Hall](https://lh3.googleusercontent.com/yOqVEBSm_g_qXthnAvsLkUM4XV941pxTJ_v7SuQNwNyOdJQuIiquigVixRAMJN5L2EYUCFbG1uYUinQ9PbgmNa2T93ofmkHpx-OIObiKCbRzqzugakSsD4vAJpxRmD-ZbnFsos9exg=w2400)*Dis K by Kevin Hall*&nbsp;
+### Sun 2023.03.19
+![Jump by Kevin Hall](https://lh3.googleusercontent.com/yOqVEBSm_g_qXthnAvsLkUM4XV941pxTJ_v7SuQNwNyOdJQuIiquigVixRAMJN5L2EYUCFbG1uYUinQ9PbgmNa2T93ofmkHpx-OIObiKCbRzqzugakSsD4vAJpxRmD-ZbnFsos9exg=w2400)*Jump by Kevin Hall*&nbsp;
 
 
 
