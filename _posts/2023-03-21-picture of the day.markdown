@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Drillbit by Kevin Hall"
+title:  "Tronical by Kevin Hall"
 date:   2023-03-21 10:24:42 +0100
 categories: jekyll update
 ---
