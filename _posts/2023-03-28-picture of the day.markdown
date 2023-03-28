@@ -1,4 +1,3 @@
-
 ---
 layout: post
 title:  "0°C Oberwald Lake"
@@ -7,7 +6,9 @@ categories: jekyll update
 ---
 0°C Oberwald Lake 
 
-It was really cold in the early morning. The Lake looked like a hot pond and some ducks were enjoying it.
+It was really cold in the early morning.   
+
+The Lake looked like a hot pond and some ducks were enjoying it.
 
 
 ![0°C Oberwald Lake](https://lh3.googleusercontent.com/pw/AMWts8AEzPT_FNyg1YPknyC6AUBNRnaw0cJlnBJG9ECgu-0SBahHtSVPkFdHeXtrMCpOk6lbUmlohbtiHZNeYrHjvd_wRIJCDdt9Rdx0KSipMVFOngb2CRg=w2400)*0°C Oberwald Lake*&nbsp;
