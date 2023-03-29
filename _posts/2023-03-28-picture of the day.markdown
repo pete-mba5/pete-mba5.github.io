@@ -8,7 +8,7 @@ categories: jekyll update
 Chill morning to bike to the office without hand gloves.
 
 
-![Frozen Lake in Spring](https://lh3.googleusercontent.com/g_b40P7UH2vkqYeGRkhfd2c5Dx_kDEozbvXADkcKfZmhkNTfL4TjcDPLjxFbHD9hs2PQOWb1s_hwJ5SCZAphJ95SNqThDkoYbVszXaG_BkURg3-JFAK6VTLbwGYEn4x9HTiKVEz_og=w2400)*Oberwald Frozen Lake in Spring*&nbsp;
+![Frozen Lake in Spring](https://lh3.googleusercontent.com/vUpyQkA27bKd-svTxwWP0oH4w62_ztv4wFkkNyTZhSbn0f4yCvH3DT0u0UzjCYk3uTuIxCyDgJRf7nlsQJlJMBV45-PS4LPjFGaF3Enojew4reFrMnIAE_mw78S0QyBquxPj_9b0AA=w2400)*Oberwald Frozen Lake in Spring*&nbsp;
 
 
 
