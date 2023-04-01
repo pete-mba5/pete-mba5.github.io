@@ -6,7 +6,7 @@ categories: jekyll update
 ---
 test git push  
 
-test back and check
+DELETED on the browser
 
 ### Wed 2023.03.31
 ![Dis K by Kevin Hall](https://lh3.googleusercontent.com/yOqVEBSm_g_qXthnAvsLkUM4XV941pxTJ_v7SuQNwNyOdJQuIiquigVixRAMJN5L2EYUCFbG1uYUinQ9PbgmNa2T93ofmkHpx-OIObiKCbRzqzugakSsD4vAJpxRmD-ZbnFsos9exg=w2400)*this will be deleted*&nbsp;
