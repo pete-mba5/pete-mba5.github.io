@@ -13,7 +13,6 @@ Unfortunately I could not find any time for repotting all the plants I purchased
 
 
 
-### Wed 2023.03.31
 ![Brains by Kevin Hall](https://lh3.googleusercontent.com/A3vYJEgttN90AgyhGfGKELvuFn4iIcslhRSRdMT0zQpnBOQ_7xTSRo8zDn8krvU8NfxXdzpeSdqXvoHYtBfbP1hcbYoJwkaXT__gZsSBsrreounnuw7h8urcWlD1nZEZmHslQn686A=w2400)*Brains by Kevin Hall*&nbsp;
 
 
