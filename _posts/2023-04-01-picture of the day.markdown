@@ -11,7 +11,7 @@ It is time to think in a new subject for the picture of the day. Spring is comin
 
 I have also finished in the early morning Manuel de Pedrolo's book: Domicili Provisional. It was a fiction funny quick read that I enjoyed a lot.  
 
-Today I will go to the Opera to enjoy the Flying Dutch. I was looking forward for this appointment since Christmas 2022. Let's see how good will be the experience.
+Today I will go to the Opera to enjoy the Flying Dutchman. I was looking forward for this appointment since Christmas 2022. Let's see how good will be the experience.
 
 
 ![BracKIT by Kevin Hall](https://lh3.googleusercontent.com/pw/AMWts8BRftISnCIjdOGo4NGbBBX1UY-b4Vbf8EI0ripAClvOSlAq9hF2qIm8xqX0C7mGJka8zDSP_q7yCnr8GPympP6oxea_pr_wRjqUnvgNfdu-b3-R7yY=w2400)*BracKIT by Kevin Hall*&nbsp;
