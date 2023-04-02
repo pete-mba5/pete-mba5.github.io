@@ -10,7 +10,7 @@ My lunch break run was not optimal. I got caught by a heavy rain and arrived hom
 
 
 
-![Spider by Kevin Hall](https://photos.app.goo.gl/MzSrRyDh1tb5wtda8)*Spider by Kevin Hall*&nbsp;
+![Spider by Kevin Hall](https://lh3.googleusercontent.com/pxCPig1-QaSoslPgK6gnyigXAlFUCJnKRSpaLf7SMBlrEaO-MZNh138MwGZXn6OHoyN9tGtsj-JZlCPc3Vx0FEkc-myxOEwza7l95HpHLOlDBM4xYsC4e_TlpHtGpsZf0aSYusKl0Q=w2400)*Spider by Kevin Hall*&nbsp;
 
 
 
