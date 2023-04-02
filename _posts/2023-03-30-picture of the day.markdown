@@ -1,19 +1,16 @@
 layout: post
-title:  "BracKIT by Kevin Hall"
+title:  "Spider by Kevin Hall"
 date:   2023-03-30 10:17:42 +0100
 categories: jekyll update
 ---
 
-This is the last robot from Kevin Hall's book: Roboter 30 Ideen mit LEGO Steinen. I will investigate if there is some community online where to get inspired building more LEGO robots.
+This model is a good one and kept me entertained a good couple of hours.  
 
-It is time to think in a new subject for the picture of the day. Spring is coming to Germany and I am quite sure that flowers, blossom, plants, nature will be the focus of this activity. 
-
-I have also finished in the early morning Manuel de Pedrolo's book: Domicili Provisional. It was a fiction funny quick read that I enjoyed a lot.  
-
-Today I will go to the Opera to enjoy the Flying Dutch. I was looking forward for this appointment since Christmas 2022. Let's see how good will be the experience.
+My lunch break run was not optimal. I got caught by a heavy rain and arrived home totally soaked. I am really lucky that I have so many running shoes.
 
 
-![BracKIT by Kevin Hall](https://lh3.googleusercontent.com/pw/AMWts8BRftISnCIjdOGo4NGbBBX1UY-b4Vbf8EI0ripAClvOSlAq9hF2qIm8xqX0C7mGJka8zDSP_q7yCnr8GPympP6oxea_pr_wRjqUnvgNfdu-b3-R7yY=w2400)*BracKIT by Kevin Hall*&nbsp;
+
+![Spider by Kevin Hall](https://photos.app.goo.gl/MzSrRyDh1tb5wtda8)*Spider by Kevin Hall*&nbsp;
 
 
 
