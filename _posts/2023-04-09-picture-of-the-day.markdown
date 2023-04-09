@@ -5,13 +5,13 @@ date:   2023-04-09 14:49:42 +0100
 categories: jekyll update
 ---
 
-Running with the GoPro in my hometown.  
+Running with the GoPro in my hometown. This will be the new series for this week.  
 
-It is just 1200km but the weather is milder and nicer here. It is always nice to run here and dig deeper into my old memories.  
+It is just 1200km but the weather is milder here. I cannot listen to podcast while running because every detail and  every corner triggers old memories.  
 
-Some places remain the same but, others are totally changed and cannot trigger anything. It is too late to document the place I was born and raised, but I will find some other ones.  
+Some places remain the same while others are totally changed. It is too late to document all the places I know since I  was born and raised in the same state, but I will try to do a good work, taking pictures of the most significant ones.  
 
-Today I got a nice picture of the romanic building of St. Pere Ullastre. To the right we can see the mountain, Puig de la Creu and on the left, La Mola.
+Today I got a nice picture of the romanic building of St. Pere Ullastre, sorrounded by two of the peaks I am going to visit this week. To the right we can see "el Puig de la Creu" and to the left "La Mola".
 
 
 
