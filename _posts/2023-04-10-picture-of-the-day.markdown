@@ -10,7 +10,7 @@ categories: jekyll update
 
 
 
-![el Puig de la Creu](https://drive.google.com/file/d/1djPQwR0kLbfsSH95PryZqYmlTvTN6FcW)*El Puig de la Creu*&nbsp;
+![el Puig de la Creu]([https://drive.google.com/file/d/1djPQwR0kLbfsSH95PryZqYmlTvTN6FcW](https://photos.app.goo.gl/J1ok6SLfobMtS7gZ6))*El Puig de la Creu*&nbsp;
 
 
 
