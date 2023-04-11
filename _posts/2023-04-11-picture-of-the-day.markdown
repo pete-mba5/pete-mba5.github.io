@@ -7,9 +7,9 @@ categories: jekyll update
 
 I visited today Sant Esteve de Castellar Vell and again I got lost in the forest. St. Stephan is the patron of my village and this is the old church. It is very close to our river, el Ripoll.  
 
-There are too many unmarked new paths created by the mountainbikers.  
+I planned very carefully my run today but since mountainbiking is so popular here, new tracks that did not exist in Google maps confused me. All in all, 5km too much and late for the appointment with one of my cousins. Business as usual. Tomorrow I will try harder.  
 
-The weather is like in Summer here. I do not need the jacket anymore to run. The Sun is not killing yet, but it is better to run on the shadows. The wind is still cold. They are almost perfect conditions to run.  
+The weather is excellent. It would be like a mild Summer in Karlsruhe. I do not need the jacket anymore, just a t-shirt. The Sun is not burning yet, but running in the shadows with the little breeze is perfect.
 
 
 
