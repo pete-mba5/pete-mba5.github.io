@@ -1,11 +1,11 @@
 ---
 layout: post
 title:  "Sant Esteve de Castellar Vell"
-date:   2023-04-11 15:49:42 +0100
+date:   2023-04-11 12:49:42 +0100
 categories: jekyll update
 ---
 
-I visited today Sant Esteve de Castellar Vell and again I got lost in the forest. St. Stephan is the patron of my village and this is the old church, very close to our river, el Ripoll.  
+I visited today Sant Esteve de Castellar Vell and again I got lost in the forest. St. Stephan is the patron of my village and this is the old church. It is very close to our river, el Ripoll.  
 
 There are too many unmarked new paths created by the mountainbikers.  
 
