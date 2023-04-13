@@ -5,7 +5,7 @@ date:   2023-04-06 14:49:42 +0100
 categories: jekyll update
 ---
 
-Soda Brücke on my way back from the office.  It is places between the Südtangente and the railways.
+Soda Brücke on my way back from the office.  It is placed between the Südtangente and the railways closed to the main Station Karlsruhe.
 
 
 
