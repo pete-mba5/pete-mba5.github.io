@@ -1,18 +1,17 @@
+
 ---
 layout: post
-title:  "Montserrat from la Mola"
-date:   2023-04-14 16:49:42 +0100
+title:  "Sant Sebastià de Montamajor"
+date:   2023-04-14 13:49:42 +0100
 categories: jekyll update
 ---
 
-I did it! I reached la Mola from my parent's home. It was almost perfect.  
+Today was our last day in Castellar and to celebrate we wanted to book 1,5h at Salting. I still do not know why, but the clerk at the reception convinced me that 2h would be cheaper for us, because it also included jumping socks, that I did not need at all. Anyhow, we tried and I won. 15 mins before expiring our last bout, the kids were totally empty and soared.  
 
-The way back is another story. I forgot to start again the watch. I got lost 3 times downhill and crashed three times with branches, roots of losen stones...it was hard.
-
-Challenge done.
+I will have a pleasant trip back to Germany, while my kids sleep and recover themselves. Mission accomplished.
 
 
-![Montserrat from la Mola](https://lh3.googleusercontent.com/_GOI6muhY80yWOogo8mzDNyHf3-zHXH7Vu4PbDi5UthY35pRjoImx1gAVHDwvk3LTV7tp0kc7SlIUghrQsVHdlGVnVXVahfDfk-YcPf0bbEtZoj3ZmI4H3-Q3rfdRixh6iedJLju_w=w2400)*Montserrat from la Mola*&nbsp;
+![Sant Sebastià de Montmajor](https://lh3.googleusercontent.com/pw/AJFCJaWi6d8tTHQn6Gh5qycrmq2pXm6NpeU1MVZr7AtTtz2ExdLzT6oy9Kk0dO6kJjl7e6g77jxroNxlcEJ5B-9WKuDrmYf1od31tsfz1-_XgQQ7yZk-ckQ=w2400)*Sant Sebastià de Montamajor*&nbsp;
 
 
 
