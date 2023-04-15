@@ -1,4 +1,3 @@
-
 ---
 layout: post
 title:  "Sant Sebastià de Montamajor"
