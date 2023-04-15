@@ -5,7 +5,11 @@ date:   2023-04-14 13:49:42 +0100
 categories: jekyll update
 ---
 
-Today was our last day in Castellar and to celebrate we wanted to book 1,5h at Salting. I still do not know why, but the clerk at the reception convinced me that 2h would be cheaper for us, because it also included jumping socks, that I did not need at all. Anyhow, we tried and I won. 15 mins before expiring our last bout, the kids were totally empty and soared.  
+Today was our last day in Castellar and to celebrate, we wanted to book 1,5h at Salting.  
+
+I still do not know how, but the clerk at the reception convinced me that 2h would be the best option for us. Total price was the same and it included jumping socks, that I did not need at all.  
+
+Anyhow, I booked it the two hours and the guy was right. It was the best option but not because of the price but the consequences. Fifteen minutes before expiring our last bout, the kids were totally empty and soared. They were lying on the trampolin.  
 
 I will have a pleasant trip back to Germany, while my kids sleep and recover themselves.  
 
