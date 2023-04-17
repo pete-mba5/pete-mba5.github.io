@@ -9,7 +9,7 @@ Today was our last day in Castellar and to celebrate, we wanted to book 1,5h at 
 
 I still do not know how, but the clerk at the reception convinced me that 2h would be the best option for us. Total price was the same and it included jumping socks, that I did not need at all.  
 
-Anyhow, I booked it the two hours and the guy was right. It was the best option but not because of the price but the consequences. Fifteen minutes before expiring our last bout, the kids were totally empty and soared. They were lying on the trampolin.  
+Anyhow, I booked the two hours and the guy was right. It was the best option for me. It was not the price but the consequences. Fifteen minutes before expiring our last bout, the kids were totally exhausted, empty and soared. They were lying all over the trampolins.  
 
 I will have a pleasant trip back to Germany, while my kids sleep and recover themselves.  
 
