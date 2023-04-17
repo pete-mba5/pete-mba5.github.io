@@ -7,7 +7,7 @@ categories: jekyll update
 
 Getting ready to hit the highway.  
 
-The hit of the day was not the running or the drive back home but Tim's Pokemon God's pack.  
+The highlight of the day was not the running or the drive back home but Tim's Pokemon God's pack.  
 
 Yes he did it. According to his information it has a 1/10.000.000.000 probability and he has got it.  
 
