@@ -1,16 +1,21 @@
 ---
 layout: post
-title:  "Ermita de la Mare de Déu de Togores"
-date:   2023-04-15 13:49:42 +0100
+title:  "Lego Head Box"
+date:   2023-04-16 22:49:42 +0100
 categories: jekyll update
 ---
 
-Getting ready to hit the highway.  
+It was a slow trip. Close to the French border, heavy winds hit us and they were with us until well passed Lyon.  
+
+Once the wind stopped, the rain showed up. It was impossible to get bored on the wheel.  
+
+When we arried at home it was 5:30am and there were lots of birds chirping before the Sun came. It was really loud. Even with the ar windows closed and the radio on, I was able to listen to them.  
+
+I slept 8h and stood up to organize everything we brought here.
 
 
 
-
-![Ermita de la Mare de Déu de Togores]()*Ermita de la Mare de Déu de Togores*&nbsp;
+![Lego Head Box](https://lh3.googleusercontent.com/pw/AJFCJaUMjN-oWqPjoy-2EjFvZbJSRO9wrtt5UXj3vVifRzxW4qgcA9TdNwffXGJ-B2GTk3FqvZAPLcTonQyqtsRiJxoEeptJUAPyY_z7jwW9vninlaksVJI=w2400)*Lego Head Box*&nbsp;
 
 
 
