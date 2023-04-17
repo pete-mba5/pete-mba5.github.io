@@ -7,7 +7,7 @@ categories: jekyll update
 
 Before staying all day in a car driving to Barcelona, I found some time to exercise and enjoy the sunrise at home. Spring is a wonderful season were all the plants wake up and start to fill in everything with colors.  
 
-For the first time in many years we are going to drive during the day. It was odd, seeing all the landscape along the way.  
+For the first time in many years we have been driving during the day. It was odd, seeing all the landscape along the way.  
 
 Another effect of driving during the day is that my kids are waken up all the way. It was not bad, they are getting older and do not cry or ask for a pause every 15mins.  
 
