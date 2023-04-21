@@ -7,7 +7,7 @@ categories: jekyll update
 
 On our way back to Karlsruhe, in the A5 highway, we have seen the Bundesliga Schalke's bus heading to the south. My kids took some pitures of it although they are not interested at all in football.  
 
-I started readig "Dietari" from Manuel de Pedrolo and "Finding Ultra" from Rich Roll and now, while writing these lines I am realizing that I have to read a fiction book and none of them is one of this kind. I need to start a new one tonight.  
+I started readig "Dietari" from Manuel de Pedrolo and "Finding Ultra" from Rich Roll and now, while writing these lines I am realizing that I have to read a fiction book and none of them is one of this kind. I will start a new one tonight.  
 
 I have planted more Anemones, 15  and Dhalias, 3,  in my backyard. Let's see if tomorrow stops raining and I can mow my lawn.
 
