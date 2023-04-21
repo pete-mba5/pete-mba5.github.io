@@ -6,7 +6,7 @@ categories: jekyll update
 ---
 I finished the book "The Distraction Addiction". It was a quick read with some interesting ideas, that I had already read somewhere else.  
 
-I am trying some of these ideas and for the time being, it is going well. I am just checking my corporate email 2 to 3 times a day. The rest of the day, the Outlook remains closed. My appointments can be checked on TEAMS.  
+I am trying some of these ideas and for the time being, everything is going well. I am just checking my corporate email 2 to 3 times a day. The rest of the day, the Outlook remains closed. My appointments can be checked on TEAMS.  
 
 Once I am consistent with the abandonment of the email, I will remove the Outlook app from the iPhone. I am currently not using it, but I still want to keep it just in case.  
 
