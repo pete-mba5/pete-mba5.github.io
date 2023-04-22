@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Sant Sebastià de Montamajor"
+title:  "Sant Sebastià de Montmajor"
 date:   2023-04-14 13:49:42 +0100
 categories: jekyll update
 ---
@@ -16,7 +16,7 @@ I will have a pleasant trip back to Germany, while my kids sleep and recover the
 Mission accomplished.
 
 
-![Sant Sebastià de Montmajor](https://lh3.googleusercontent.com/pw/AJFCJaWi6d8tTHQn6Gh5qycrmq2pXm6NpeU1MVZr7AtTtz2ExdLzT6oy9Kk0dO6kJjl7e6g77jxroNxlcEJ5B-9WKuDrmYf1od31tsfz1-_XgQQ7yZk-ckQ=w2400)*Sant Sebastià de Montamajor*&nbsp;
+![Sant Sebastià de Montmajor](https://lh3.googleusercontent.com/pw/AJFCJaWi6d8tTHQn6Gh5qycrmq2pXm6NpeU1MVZr7AtTtz2ExdLzT6oy9Kk0dO6kJjl7e6g77jxroNxlcEJ5B-9WKuDrmYf1od31tsfz1-_XgQQ7yZk-ckQ=w2400)*Sant Sebastià de Montmajor*&nbsp;
 
 
 
