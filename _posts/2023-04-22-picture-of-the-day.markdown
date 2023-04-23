@@ -7,7 +7,7 @@ categories: jekyll update
 
 I decided to read the fiction book "Bad Karma to the Power of Two". I have just read the first one and was funny.  
 
-I have invested around three hours of my afternoon working on the garden. Now everything is properly setup. We can start the barbecue season.  
+I have invested around three hours of my afternoon working in the garden. Now everything is properly setup. We can start the barbecue season.  
 
 I have transferred two more apps to my new private iPhone. The end of the transition is getting closer and closer.
 
