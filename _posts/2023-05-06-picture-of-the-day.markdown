@@ -12,7 +12,7 @@ KSC has won against Hannover '96.
 
 The new stadium is not finished but it is getting very modern.  
 
-We got our tickets behind the goal where the local supporters are. It was perfect. They sang and cheered for KSC all the match. It was very impressing checking how the two drummers only partially stopped playing during the halftime.  
+We got our tickets behind the goal where the local supporters are. It was perfect. They sang and cheered for KSC all the match. It was very impressive checking how the two drummers only partially stopped playing during the halftime.  
 
 Now, we have to go to the cinema to enjoy Guardians of the Galaxy 3. IMAX and 3D is waiting for us.
  
