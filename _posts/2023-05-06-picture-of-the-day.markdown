@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Karlsruher SC"
-date:   2023-05-06 17:49:42 +0100
+date:   2023-05-06 11:49:42 +0100
 categories: jekyll update
 ---
 
