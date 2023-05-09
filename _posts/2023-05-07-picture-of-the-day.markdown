@@ -6,7 +6,9 @@ categories: jekyll update
 ---
 
 
-KuSG Jugend D won the Qualification easily. Next year they will play in the C League. Good job!
+KuSG Jugend D won the Qualification easily. Next year they will play in the C League.  
+
+Good job!
 
 ![KuSG Qualification](https://lh3.googleusercontent.com/pw/AJFCJaX3CC9Ix-jypka670xNHnD8JbgT1z-bzIaIujXltJset26dMxaEzaZUoXVlfIe7ZDtmSWmSHZgDxmv3AvV7oFsTlqebNYgevzydkXgPTxTM4EvBiRM=w2400)*KuSG Qualification*&nbsp;
 
