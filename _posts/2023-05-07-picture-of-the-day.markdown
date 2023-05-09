@@ -1,14 +1,14 @@
 ---
 layout: post
-title:  ""
-date:   2023-04- 20:49:42 +0100
+title:  "KusG Qualification"
+date:   2023-04-07 20:49:42 +0100
 categories: jekyll update
 ---
 
 
+KuSG Jugend D won the Qualification easily. Next year they will play in the C League. Good job!
 
-
-![]()**&nbsp;
+![KuSG Qualification](https://lh3.googleusercontent.com/pw/AJFCJaX3CC9Ix-jypka670xNHnD8JbgT1z-bzIaIujXltJset26dMxaEzaZUoXVlfIe7ZDtmSWmSHZgDxmv3AvV7oFsTlqebNYgevzydkXgPTxTM4EvBiRM=w2400)*KuSG Qualification*&nbsp;
 
 
 
