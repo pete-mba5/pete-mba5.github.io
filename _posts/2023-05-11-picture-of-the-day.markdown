@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Tile Stree Art in Madrid"
+title:  "Tile Street Art in Madrid"
 date:   2023-05-11 20:49:42 +0100
 categories: jekyll update
 ---
