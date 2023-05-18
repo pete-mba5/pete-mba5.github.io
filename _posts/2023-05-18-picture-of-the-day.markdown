@@ -6,9 +6,11 @@ categories: jekyll update
 ---
 
 
-I finished the book "Stolen Focus" by Johann Hari. I liked it a lot and made stop to think constantly.  
+I finished the book "Stolen Focus" by Johann Hari. I liked it a lot. It made me stop to think constantly.  
 
-I am starting to feel stronger and faster while running in the zone 2. I still have to wait 4 more weeks before I can test my lactate after 2014.  
+I am starting to feel stronger and faster while running in the zone 2.  
+
+I still have to wait 4 more weeks before I can test my lactate after 2014.  
 
 
 
