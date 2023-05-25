@@ -1,14 +1,14 @@
 ---
 layout: post
-title:  ""
-date:   2023-04- 20:49:42 +0100
+title:  "Kabuto"
+date:   2023-05-25 09:49:42 +0100
 categories: jekyll update
 ---
 
+Lars has organized a barbecue at his place.  I am planning to bring some green salad. I cannot be there for a very long time, since tomorrow in the evening I am planning to drive to Barcelona again.
 
 
-
-![]()**&nbsp;
+![Kabuto](https://lh3.googleusercontent.com/F2qBrKSXMeWvO-sIPJlN7op4rv0yBESCJ-gpU72KM_cErm9csHJ8QzuzwvIT47XzubnLzrsE13YWhTjod3kHw0Nbs_ZEbnNpw9heWU3_ZsvulvsK4rH8sQICn-1C2LXvXUOeKOaCXA=w2400)*Kabuto*&nbsp;
 
 
 
