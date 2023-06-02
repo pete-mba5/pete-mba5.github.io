@@ -12,7 +12,7 @@ We went a little bit earlier to the restaurant and luckily, we got our lunch as 
 I am reading a book from David Deutsch. It is interesting but not an light read. I need to be focussed in order to get a lot from it, but I like the subject.
 
 
-![Giant Bird of Paradise](https://lh3.googleusercontent.com/kKam-6r3APCb6NXOBy0_vikis8xfM0q8luuBZW3Xd83tcz8A6Y5F5qPnxhPZ6MvJTilPaFtp3CtiuQ1CJ6aJaOlfq8pdMZknq6rXFKOe_sMzxYZ25Kn946Y6Q5hzxzfcozQ4hJjqKg=w2400)*Giant Bird of Paradise*&nbsp;
+![Giant Bird of Paradise](https://lh3.googleusercontent.com/pw/AJFCJaVwvy45lBGC1yhpZdnUl5LodVZbRZWjkp2nM6TuG6SZWjX5czHYmvTv316OygnLkDqmrfoPOaMNXBeIATTTVdjGCo46LvAF1eJ0lXxhNo8Dzjf67MM=w2400)*Giant Bird of Paradise*&nbsp;
 
 
 
