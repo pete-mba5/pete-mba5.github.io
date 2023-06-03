@@ -5,9 +5,9 @@ date:   2023-06-02 20:49:42 +0100
 categories: jekyll update
 ---
 
-It has beed the Sunniest day of our short holidays and also the end of the quiet days. At 5pm the Spanish hord's are arriving. Only yesterday were 100 new regitries done. We won't be able to enjoy the pool and the rest of the recreational equipment as we used to.  
+It has beed the sunniest day of our short holidays. At 5pm the Spanish hords arrived. Only yesterday there were 100 new entries. We won't be able to enjoy the pool and the rest of the recreational equipment as we used to.  
 
-I ran barefoot again. My ankles are ok but since the shore is deeply inclined, my left knee is aching a little bit.  
+I ran barefoot again. My ankles are ok, but since the shore is deeply inclined, my left knee is aching a little bit.  
 
 I got really tanned. My skin is not burnt though.
 
