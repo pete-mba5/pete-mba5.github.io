@@ -8,7 +8,7 @@ categories: jekyll update
 It looks like today won't be another day in hell.
 
 
-![Cloudy Morning](https://photos.app.goo.gl/KndMofXz9USpCPnx7)*Cloudy Morning*&nbsp;
+![Cloudy Morning](https://lh3.googleusercontent.com/pw/AJFCJaWUfRfVkTsP4mbmLZHBZad1ius68crRUkQNTo--yxH9yWyL8_OiZNAL9CbnLIg3CjapO75aUF4KkkfFEsZsaZ7fiqdgg3lHRghdkdYaR_xek_FMCLQ=w2400)*Cloudy Morning*&nbsp;
 
 
 
