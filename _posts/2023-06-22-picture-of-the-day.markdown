@@ -5,9 +5,9 @@ date:   2023-06-22 20:49:42 +0100
 categories: jekyll update
 ---
 
-The Rose was totally covered with Flying Ants. In my childhood, we thought that this was a sign of an upcoing tempest. Maybe a coincidence but later in the evening, I was caught by a tempest while running.  
+The Rose was totally covered with Flying Ants. In my childhood, we thought that this was a sign of an upcoming tempest. Maybe a coincidence, but later in the evening, I was caught by a heavy rain while running.  
 
-Although I am checking the picture carefully, I can barely identify any Flying Ant. This is really weird...
+Although I am checking the picture carefully, I can barely identify any Flying Ant on the plan. This is really weird...
 
 
 
