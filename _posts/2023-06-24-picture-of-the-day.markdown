@@ -11,7 +11,7 @@ I want to read the Tintin books once again.
 
 I want to read and practice some quick yoga in the morning. My intention is to stretch more than meditate.  
 
-I woke up in the morning without any alarm. I felt totally recovered although I only slept one and a half more than usually during the week.  
+I woke up in the morning without any alarm. I felt totally recovered although I only slept one and a half more than usual during the week.  
 
 
 
