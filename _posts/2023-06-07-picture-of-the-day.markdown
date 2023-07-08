@@ -1,16 +1,14 @@
 ---
 layout: post
-title:  "Mini Pizza"
+title:  "Piccola"
 date:   2023-06-07 20:49:42 +0100
 categories: jekyll update
 ---
 
-Back to normal.  
-
-It has been a day of cleaning up, gardening and playing with the kids. I have rescued my Nintendo 2DS. Tim wants to play some old Pokemon games. Time for nostalgy.
+Maybe the trick is making them really tiny. This is when the dough is perfecticly growing altogether.
 
 
-![Mini Pizza](https://lh3.googleusercontent.com/pw/AJFCJaXqEhTM1ECPNRH-hlfi4nNZcB2-VyFzxZ0-Bjz3Vxi_UQFHqEdIVBd-r5bIvbufHrqLT2-1SUqBbnX-UxCfVd2Vqj9DAdr8exVA06rHR9VUibmRx2A=w2400)*Mini Pizza*&nbsp;
+![Piccola](https://lh3.googleusercontent.com/pw/AIL4fc8Hf3fvaBveexSg3FcSukITyPQ_gJpWWwf1L31cgdhsjPtgY_aOUL4gnKAHiTCurkB2Xfmlrd_Ct1VIHwH6p8j4ua9mjQlM5gJWQg3FPMN_pty8vOw=w2400)*Piccola*&nbsp;
 
 
 
