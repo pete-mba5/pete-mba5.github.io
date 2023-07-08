@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  ""
+title:  "Everything bloosoms?"
 date:   2023-07-01 10:49:42 +0100
 categories: jekyll update
 ---
@@ -16,7 +16,7 @@ I reached the multiverse chapter in David Deutsch book. Funny coincidence with S
 
 
 
-![]()**&nbsp;
+![Everything Blossoms?](https://lh3.googleusercontent.com/pw/AIL4fc_eJINU72tQfEu5xHyiOoAP8HzyG614q5kLzvZW7YVyUgOVD2szXxUcABR5PlbyrAAzYgm-3sTK8TCkEByIgakQgd-_rktsH3oygSnyserH6g2QDrM=w2400)*Everything Blossoms?*&nbsp;
 
 
 
