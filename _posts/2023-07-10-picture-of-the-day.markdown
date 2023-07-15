@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "water plant flower"
+title:  "Water Plant Flower"
 date:   2023-07-10 20:49:42 +0100
 categories: jekyll update
 ---
