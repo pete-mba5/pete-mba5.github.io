@@ -1,13 +1,13 @@
 ---
 layout: post
-title:  "1st day of summer holidays"
+title:  "1st Day of Summer Holidays"
 date:   2023-08-01 20:49:42 +0100
 categories: jekyll update
 ---
 
-Summer breaks already started.  
+Summer break already started.  
 
-I am committed to execute one long time postponed task every day suring the holidays.  
+I am committed to execute one long time postponed task every day during the holidays.  
 
 I removed the Flipcharts from the kitchen wall and I am using now the new ones on the door.  
 
