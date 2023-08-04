@@ -11,7 +11,7 @@ I returned the xBox to Amazon. They were great accepting the return after 15days
 
 I brought all the pots to the balconies. It is looking even better.  
 
-I read a little bit more of Tintin.
+I finished Tintin and the cigars of the Pharaoh. I started reading Guilleries from Ferran Garcia.
 
 
 ![Rome?](https://lh3.googleusercontent.com/pw/AIL4fc9hvX6mwQ3U4cvFgSxH7IlCBpiBvy3fWVszhwtyiIc-nSYWoqq9ZK8_GsLDmLXwDz50jaIs-Pj_le8KKKkqT87eA0L2t7knIlnXXOQj20WXdrNZgcI=w2400)*Rome?*&nbsp;
