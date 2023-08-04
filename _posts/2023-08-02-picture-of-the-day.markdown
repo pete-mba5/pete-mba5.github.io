@@ -10,7 +10,7 @@ We had dinner at Julian's.
 
 I was really lucky not getting totally soaked while commuting by bike.  
 
-I read a little bit of Tintin and the cigarsof the Pharao.
+I read a little bit of Tintin and the cigarsof the Pharaoh.
 
 ![Full Moon](https://lh3.googleusercontent.com/pw/AIL4fc_2JnEM7rY9jsQjzYm0V8kJeiUKZrXnrJs2K3puBv2Ekf1hpc267z4QgmGEMXyYAdOIAM-ZQqbeGgPM_bUKrudxZlGWx875VEge4vSWWUs9ipuoUzQ=w2400)*Full Moon*&nbsp;
 
