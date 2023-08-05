@@ -5,7 +5,7 @@ date:   2023-08-04 16:49:42 +0100
 categories: jekyll update
 ---
 
-Very productive day, I am liking a lot reading Tintin again. 
+Very productive day. I am enjoying a lot reading again the Adventures of Tintin again. 
 
 I spent the afternoon in the kitchen batch cooking desserts for the whole week. My target is to empty the fridge and clean it up. I will be able to do it by Wednesday next week.  
 
