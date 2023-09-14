@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "new post"
+title:  "Grötzingen"
 date: 2023-09-13 23:40:50 +0200
 categories: jekyll update
 ---
@@ -13,7 +13,7 @@ I went to the pool in Grötzingen and it is correct, it is free of charge. Of co
 
 
 
-![]()**&nbsp;
+![Grötzingen](https://lh3.googleusercontent.com/pw/AIL4fc-CDriF_8t7cSnDdymKKg5XOLq2L3z9iB0i2BM35ofqE-JTvnS1PcOBrcPY7FKIoxHbOxsHsMmsRNgmpf1lloJ3YfaTRkqfzYsiIOVoYfYENnOo9Ag=w2400)*Grötzingen*&nbsp;
 
 
 
