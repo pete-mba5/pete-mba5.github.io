@@ -7,7 +7,8 @@ categories: jekyll update
 
 I was able to do 16 chin ups in 2 mins.  
 I am feeling some pain in my left knee.  
-The stretching practice is eliminating my heel pain. 
+The stretching practice is eliminating my heel pain.  
+
 "Once upon a Prime" is resulting interesting but there are too many interesting things and I won't be able to try all of them.
 
 
