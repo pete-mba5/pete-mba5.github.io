@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Meat croquettes"
-date: 2023-11-06 23:57:15 +0100
+date: 2023-12-06 23:57:15 +0100
 categories: jekyll update
 ---
 
