@@ -1,14 +1,14 @@
 ---
 layout: post
-title:  "new post"
+title:  "Bad Weather"
 date: 2023-11-05 15:29:30 +0100
 categories: jekyll update
 ---
 
+Bad weather is coming.
 
 
-
-![]()**&nbsp;
+![Bad Weather](https://lh3.googleusercontent.com/pw/ADCreHfeB6Rdh5xdNJSg94XQYjt0_6hnGMVSolatWO6KOB4IQN1UW1uBl_yugkC3axbXMy2k_E70hD7Khsl8VIDw0Q30f8566tQYyVh6JCQrQL-tomMWemQ=w2400)*Bad Weather*&nbsp;
 
 
 
