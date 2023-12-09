@@ -1,14 +1,14 @@
 ---
 layout: post
-title:  "new post"
+title:  "Frozen"
 date: 2023-12-07 17:07:12 +0100
 categories: jekyll update
 ---
 
+It was frozen, but I took my bike in the early morning to go to swim my 1000m
 
 
-
-![]()**&nbsp;
+![Frozen](https://lh3.googleusercontent.com/pw/ADCreHe84Vj4B_2Cfh3lKHFav2s1ou9TgGaj5KLo-b7kojBY35olPEGYJMKJZnMsqlM3flK0tYywurCCHwEE86BFXRERt3gg0Yj8PSlUb-igOGA0WiKmolU=w2400)*Frozen*&nbsp;
 
 
 
