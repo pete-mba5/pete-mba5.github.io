@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Christkinldmarkt Karlsruhe"
+title:  "Christkindlmarkt Karlsruhe"
 date: 2023-12-02 09:23:10 +0100
 categories: jekyll update
 ---
