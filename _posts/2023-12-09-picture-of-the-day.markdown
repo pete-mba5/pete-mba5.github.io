@@ -5,13 +5,17 @@ date: 2023-12-09 10:46:44 +0100
 categories: jekyll update
 ---
 
-I finally organized the kitchen. It took me three hours. I made the meat croquettes, I put in containers the broth, I pureed the veggies, I cleaned the meat from skin and bones, I cut it small and finally prepared another bechamel. I cleand everything started a washing machine and made a tiramisu.  
+I finally organized the kitchen. It took me three hours. I made the meat croquettes, I put the broth in containers, I pureed the veggies, I removed all skin and bones from the meat, I cut it small and finally prepared another bechamel. I cleaned everything, started a washing machine and prepared a tiramisu.  
 
-I read a little bit more of Outlive from Peter Attia. I losing my interest in it. Maybe I was looking for a plan and I am getting a lot of justifications that I really do not need.  
+I read a little bit more of Outlive from Peter Attia. I lost some interest about it. Maybe I was looking for a specific plan and I am getting too much literature and personal insights, that I really do not need.  
 
-I matched a 11km un in my zone 2. The next challenge would be doing it without checking my watch every two minutes.  
+I matched a 11km run in my zone 2. The next challenge will be, doing it without checking my watch every two minutes.  
 
-In the evening I watched the first episode of "The IT crowd". This show was recommended during the last "Security Manager" training. Since I was in front of the beamer, I watch a couple of season 1, episode 1: Stranger Things and Black Mirror. The latest one, looked like a modern "the Twilight Zone" serie I watched when I was a kid. I liked it a lot.  
+In the evening I watched the first episode of "The IT crowd". This show was recommended to me during the last "Security Manager" training. It made me laugh a little bit.  
+
+Since I was in front of the beamer, I watched a couple of season 1, episode 1: Stranger Things and Black Mirror. The latest one, looked like a modern "the Twilight Zone". I used to watch it as a kid. I liked it a lot. I still do not know if I like this "new" version.  
+
+Tomorrow I will run a half marathon in zone 2.
 
 
 
