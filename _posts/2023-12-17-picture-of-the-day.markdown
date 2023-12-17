@@ -13,7 +13,11 @@ Tim is not waking up thus we will probably skip going to pool in the morning.
 
 Yesterday we went to Deliburger and Weihnachtsmarkt. Brauli stayed alone for 40mins finishing his burger, while Tim and myself went to pick up a Zuckerwatte.  
 
-I am still feeling the noise in my head. It all started on Wednesday during a run, two weeks ago.
+I am still feeling the noise in my head. It all started on Wednesday during a run, two weeks ago.  
+
+While running, I remembered that I want to reread Murakami's book about running. I already marked it as new in my kindle.  
+
+
 
 
 ![]()**&nbsp;
