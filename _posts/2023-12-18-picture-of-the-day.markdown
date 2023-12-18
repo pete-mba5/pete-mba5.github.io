@@ -5,7 +5,7 @@ date: 2023-12-18 11:58:21 +0100
 categories: jekyll update
 ---
 
-I finished "Homenatge als caiguts" d'Albert Sanchez Pinol. It is very positive book with very short stories. I liked it a lot.   
+I finished "Homenatge als caiguts" d'Albert Sanchez Pinol. It is a very positive book with very short stories. I liked it a lot.   
 
 I am confident that this year I will reach the mark of 1 book read per week. However, I am afraid that next year I will only consider fiction books for this challenge. Somehow non-fiction books do not make me that happy.
 
