@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "new post"
+title:  "Day Moon"
 date: 2023-12-18 11:58:21 +0100
 categories: jekyll update
 ---
@@ -13,7 +13,9 @@ I have finally figured out how to measure my HRV with the FR945 and the chest st
 
 The weather continues sunny and cold. Perfect conditions for running.
 
-![]()**&nbsp;
+
+
+![Day Moon](https://lh3.googleusercontent.com/pw/ABLVV85JhcWxu5WBU8waxIW65YBHeI_nLLxvvvPPjJqMfzq_F6fDNeFW9y9cXfStW_BZlG4CuS5LL0GJOxi213wI9ufKbnUtvDbQjcfZ8BTaWXtqnK0QccE=w2400)*Day Moon*&nbsp;
 
 
 
