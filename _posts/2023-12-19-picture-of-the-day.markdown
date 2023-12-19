@@ -11,9 +11,9 @@ I went for a walk after dinner and felt really ok. I took the opportunity to cal
 
 Yesterday's run with the Sun was excellent. I liked delaying business activities to the darker part of the day.  
 
-I managed to purchase a couple of last minute gifts and also all the accessories needed for the new Samsun monitor for Tim's wall. I also bid for a ASSC Tee for Brauli. Let's see how it will be. This is my first purchase through StockX.
+I managed to purchase a couple of last minute gifts and also all the accessories needed for the new Samsung monitor. I also bid for a ASSC Tee for Brauli. Let's see how it will be. This is my first purchase through StockX.
 
-I am going to title all the next Pictures with the diceware method. It is funny and I do not have to think a lot.
+I am going to title all the next Pictures with the diceware method. It is funny and I do not have to think at all.
 
 ![Garlem](https://lh3.googleusercontent.com/pw/ABLVV86__lM8-sXiXPBFYXuPL-rrDlont2XP_frA3DSprcbvF5J1Xt5-HDFhvsAQyjfILmdyd2t0ubBNEzWAD18Oz0AEDuIp1RUi1SZJX8yGgRQOteOMPKs=w2400)*Garlem*&nbsp;
 
