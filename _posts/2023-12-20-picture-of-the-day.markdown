@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "new post"
+title:  "Vostè"
 date: 2023-12-20 10:19:41 +0100
 categories: jekyll update
 ---
@@ -15,7 +15,7 @@ Today I am going to visit the Anime Store. Let's see if I find something interes
 
 
 
-![]()**&nbsp;
+![Vostè](https://lh3.googleusercontent.com/pw/ABLVV86fC4P2IVba1WfG9DjA6nlSSYBKntcC0Mpx_x3WzWxr0kkvqeWbENMP0A8nJ-mpyilO6oiLx8n6hbM2PV6IbAc4JVSo_uM-S66bqDjKRzlh5QlkoO0=w2400)*Vostè*&nbsp;
 
 
 
