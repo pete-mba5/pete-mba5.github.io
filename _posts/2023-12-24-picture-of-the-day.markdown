@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "new post"
+title:  "Bayer"
 date: 2023-12-24 11:12:39 +0100
 categories: jekyll update
 ---
@@ -17,7 +17,7 @@ I learnt something in the self-help book "Miracle Morning". The Author's journal
 
 
 
-![]()**&nbsp;
+![Bayer](https://lh3.googleusercontent.com/pw/ABLVV858vTWMXcMf5oUsU94EJ40YSEOLF6Ym6uuQZogZR72E-7Olw_DQJNYHY3T1O0p1JzYkerSNb3HqoyJYznqEqNHiFGYoYpCMGlEyj_O6yGPLoPd9Vq8=w2400)*Bayer*&nbsp;
 
 
 
