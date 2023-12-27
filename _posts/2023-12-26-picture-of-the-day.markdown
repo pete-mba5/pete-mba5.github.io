@@ -11,7 +11,7 @@ My HRV remains at the bottom. My sleep score is still average. I am feeling phys
 
 I really do not know when are we going to play football with Tim. The agenda is today a little bit tight and the daylight still scarce.  
 
-I am progressing reading Murakami's book. I'm am highlighting some sentences but in general, I would say that I do not like it su much.
+I am progressing reading Murakami's book. I'm am highlighting some sentences but in general, I would say that I do not like it so much.
 
 1 Loving kids  
 2 I went to McDonalds with my kids  
