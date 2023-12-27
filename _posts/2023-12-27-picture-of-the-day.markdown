@@ -14,9 +14,9 @@ I tried to read a little bit more, but Murakami's is getting very boring. Just a
 
 The smartwatch is not charging again. Is it the cable? Is it the unit? Nobody knows. Maybe it is a sign that I have to start to forget it and come back to the unique Suunto Core. No smart, but 100% watch.
 
-1 I am not getting injured.
-2 We cooked together self-made tacos in the pizza oven and they rocked
-3 Improve my soft skills
+1 I am not getting injured.  
+2 We cooked together self-made tacos in the pizza oven and they rocked   
+3 Improve my soft skills  
 4 Finish the empathy Coursera course. I will fulfil one lesson a day.
 
 
