@@ -9,7 +9,9 @@ Yesterday during the run I was thinking about what I think while running. It is 
 
 I am getting stronger. Yesterday I was able to do 3 series of pull-ups in the garden. Number of reps as follows: 9, 8 and 7. It is like a miracle. One thing that I am missing is the grip strenght. By the end of the series, more than pain in my back, I felt a poor grip to the bar. It is much more difficult to pull up when you are hanging from your fingertips.  
 
-The plan for today is having a tasty Delibrugers all together and play some more football in the muddy playground. The Sun is not to be seen today with so many clouds thus I believe that I will run again in the forest. I will probably do my sugar cane protocol.
+The plan for today is having a tasty Delibrugers all together and play some more football in the muddy playground. The Sun is not to be seen today with so many clouds thus I believe that I will run again in the forest. I will probably do my sugar cane protocol.  
+
+Since it is raining, I had to change the plan and simply run a zone 2 11k. For the second day this week, I have seen one of the NABU 'Vogel des Jahres'. Today I saw a Grünspecht.
 
 1 The place I am living and the life I have  
 2 Playing 2h football with my 8yo kid  
