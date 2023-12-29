@@ -5,9 +5,9 @@ date: 2023-12-29 10:21:51 +0100
 categories: jekyll update
 ---
 
-I changed a little bit the routine and manage the journal in the afternoon.  
+I changed a little bit the routine and I am managing the journal in the afternoon.  
 
-The morning run was excellent with cold and Sun. Perfect weather for running.  
+The morning run was excellent with Sun and a cold breeze. Perfect weather for running.  
 
 1 Being relatively healthy. I can physically do whatever I want.  
 2 I installed Brauli's monitor in Tim's room. It was not valid for gaming, but looks great here and I can also use it for home office.  
