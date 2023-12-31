@@ -5,6 +5,9 @@ date: 2023-12-31 15:59:15 +0100
 categories: jekyll update
 ---
 
+We went to ski.  
+
+Brauli is mastering it. Tim has a little bit of fear. He is not confident turning. He will need more time.  
 
 
 
