@@ -12,7 +12,7 @@ I am progressing with the empathy training and enrolled in a Rust programming on
 
 
 
-![Subintra]()*Subintra*&nbsp;
+![Subintra](https://lh3.googleusercontent.com/pw/ABLVV85jBY3i8Q_Dotde0Im6vPg7wvWeV04KHKZ3DbRUZxDDzolcXZdLepK43HIa1Wrbng0Ri_qYidNkBiUmAWnwPmd_RC1SSNAoXVM1lvjDNvfoA98qoh8=w2400)*Subintra*&nbsp;
 
 
 
