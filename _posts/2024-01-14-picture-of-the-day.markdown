@@ -18,7 +18,7 @@ I installed the NEC screen in the basement, together with the Pi400.
 My HFV is getting back to normal. Today I just scored a 9.
 
 
-![Camejant]()*Camejant*&nbsp;
+![Camejant](https://lh3.googleusercontent.com/pw/ABLVV847rAH_AANBb7w6F0hTcWxgEPDlVaJv6m3OivO8JPLorYcK5TkufrXQozsvWOaHObLoRXMhC3PZipqraVXLKvNQO30xsA3If5JlbECj_mACQ-eod00=w2400)*Camejant*&nbsp;
 
 
 
