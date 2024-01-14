@@ -1,14 +1,24 @@
 ---
 layout: post
-title:  "new post"
+title:  "Camejant"
 date: 2024-01-14 09:16:32 +0100
 categories: jekyll update
 ---
 
+I recorded timestamps of all my yesterday's activities. I will do the same today.  
+
+I finished "Mossegar-se la cua" d'en Pedrolo. I liked it, specially when the investigators tell one of the complices to go to study for the last course after he confeses everything. I had to laugh loud in the middle of the night.   
+
+It is really cold out there. I need good 7k to get warm and start to pace at a normal speed while running.  
+
+I look for the Elite controller invoice without any success. I have no clue where I purchased it.   
+
+I installed the NEC screen in the basement, together with the Pi400.   
+
+My HFV is getting back to normal. Today I just scored a 9.
 
 
-
-![]()**&nbsp;
+![Camejant]()*Camejant*&nbsp;
 
 
 
