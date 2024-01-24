@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Puding with Torro Xixona"
+title:  "Pudding with Torro Xixona"
 date: 2023-12-26 11:31:31 +0100
 categories: jekyll update
 ---
@@ -19,7 +19,7 @@ I am progressing reading Murakami's book. I'm am highlighting some sentences but
 4 Finish the empathy Coursera course
 
 
-![Puding with Torro Xixona](https://lh3.googleusercontent.com/pw/ABLVV84asQaCM5oIt0YRBVmO6FacR31vIDHevxfys-vXRFMDM3ysHdOdHEPb643vZBIRMQVQHItVNVv3RXuH_cSGzhILQIKmSQhSwyz3wXMbpuwCkN0muLA=w2400)*Puding with Torro Xixona*&nbsp;
+![Pudding with Torro Xixona](https://lh3.googleusercontent.com/pw/ABLVV84asQaCM5oIt0YRBVmO6FacR31vIDHevxfys-vXRFMDM3ysHdOdHEPb643vZBIRMQVQHItVNVv3RXuH_cSGzhILQIKmSQhSwyz3wXMbpuwCkN0muLA=w2400)*Pudding with Torro Xixona*&nbsp;
 
 
 
