@@ -19,7 +19,7 @@ One arm push-ups can now be done on the floor. I am steadily improving. It is a 
  
 
 
-![Garbella]()*Garbella*&nbsp;
+![Garbella](https://lh3.googleusercontent.com/pw/ABLVV86rf-CQCw7kJzt3jlPhdyF6KJ4eKO7uu2LlgN_Hk1uAr2xCqnQkAwyVn4yGYsIEyJkbU29_sLcJEDKSAdprF5nDXorbajjWiayRUxAAJlkXMPbisa0=w2400)*Garbella*&nbsp;
 
 
 
