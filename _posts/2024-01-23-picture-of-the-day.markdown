@@ -11,7 +11,7 @@ I am reading "Les calces al Sol". Nothing remarkable so far. Let's see if I will
 
 This is the last week of my Empathy training. It is getting more and more challenging to absorb new approaches. Maybe I am not the one for this skill.  
 
-Because of the cold, I have put some of my pot inside my place. They got confused with the wamrth and started blooming.  
+Because of the cold, I have put some pots inside my place. They got confused with the warmth and started blooming.  
 
 
 
