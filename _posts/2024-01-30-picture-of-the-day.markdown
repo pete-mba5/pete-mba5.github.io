@@ -9,10 +9,13 @@ I am removing obsolete apps from my old cell phone and saving the passwords in a
 
 I was reading yesterday "the Rational Optimist" and "the Story of the Blockchain" from Omid Malekan. I am liking both so far.   
 
+Sleep score is getting close to 90%.  
 
 
 
-![Badocava]()*Badocava*&nbsp;
+
+
+![Badocava](https://lh3.googleusercontent.com/pw/ABLVV85MeSrQ7hshGnD3F5y7GC4DpyAVqxuV9qaVD_QBvnSmfASEWWLxPWpY6C97_mWb72OQnWGgC5y3BonM2KrNQkDKJacOTMhH3dPBzufyn3TPiGQf0_Q=w2400)*Badocava*&nbsp;
 
 
 
