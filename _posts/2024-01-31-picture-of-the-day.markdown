@@ -11,6 +11,10 @@ I am starting to find the "Rational Optimist" a little bit too descriptive with 
 
 Yesterday in the late afternoon, I had to go outside and walk for almost one hour. I was getting some stomach ache. After the walk, I felt much better.  
 
+The fire alarm is working perfectly. It would be great to know how to stop the alarm once you have the situation under control.  
+
+
+
 
 
 
