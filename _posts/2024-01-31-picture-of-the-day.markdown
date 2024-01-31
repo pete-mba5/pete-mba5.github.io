@@ -1,14 +1,22 @@
 ---
 layout: post
-title:  "new post"
+title:  "Ximpleja"
 date: 2024-01-31 06:42:41 +0100
 categories: jekyll update
 ---
 
+Today I forced myself to do my stretching and yoga right after waking up. It was ok. Now I can spend some time sitting working without thinking about it anymore.  
+
+I am starting to find the "Rational Optimist" a little bit too descriptive with the examples. I do not need that much to follow the argumentation. Let's see how all of this evolves.  
+
+Yesterday in the late afternoon, I had to go outside and walk for almost one hour. I was getting some stomach ache. After the walk, I felt much better.  
 
 
 
-![]()**&nbsp;
+
+
+
+![Ximpleja]()*Ximpleja*&nbsp;
 
 
 
