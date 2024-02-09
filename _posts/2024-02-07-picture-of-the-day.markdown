@@ -14,7 +14,7 @@ There is something in the Rust course that does not work. I can run the scripts 
 Yesterday I managed to organize the password chaos I have for Xbox and Nintendo. One thing less to do.
 
 
-![Cecal]()*Cecal*&nbsp;
+![Cecal](https://lh3.googleusercontent.com/pw/ABLVV87llb9Zv01qy55Lfvds1yqsV0GN738i-TX_-VzXsouFSuko7mBCpuwIMJrdzuj8vR07Q-_ETVNbkV1BbDLSniucqpeKcggmhe613S3uwYusKJRFR-E=w2400)*Cecal*&nbsp;
 
 
 
