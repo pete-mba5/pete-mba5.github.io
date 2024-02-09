@@ -5,7 +5,7 @@ date: 2024-02-04 06:55:51 +0100
 categories: jekyll update
 ---
 
-I prooved myself that I can run a marathon distance without drinking and eating. I made it in 3:28. It was not bad for a heavy windy day.  
+I proved myself that I can run a marathon distance without drinking and eating. I made it in 3:28. It was not bad for a heavy windy day.  
 
 The question is, who has the time to run that much?
 
