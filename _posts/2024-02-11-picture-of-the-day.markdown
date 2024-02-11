@@ -7,6 +7,10 @@ categories: jekyll update
 
 I have already had my best 1000m. It was not easy because of the amount of people in the lane, but I managed to pass without hitting and not turning at the wall. I am getting very close to 1:30 per 100m. This is one of the targets for this year. Let's see if I will reach it.  
 
+It was very challenging today to get the world of the day. I crossed lots of people today, but they were silent or stopped talking while I approached them. Anyhow, I caught "geht".   
+
+
+
 
 
 
