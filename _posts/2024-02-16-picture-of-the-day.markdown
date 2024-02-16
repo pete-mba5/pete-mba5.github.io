@@ -7,7 +7,7 @@ categories: jekyll update
 
 Today im turning 50 years old. Yesterday night arrived my mom and youngest sister. This was a big and unexpected surprise. We will continue celebrating today. I am happy.   
 
-I am enjoying Pedrolo's book. IT is normal with this author.   
+I am enjoying Pedrolo's book. It is normal with this author.   
 
 My heel is better today.  
 
