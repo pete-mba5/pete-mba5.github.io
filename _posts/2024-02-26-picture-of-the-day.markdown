@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "corejant"
-date: 2024-02-26 10:01:32 +0100
+date: 2024-02-26 10:12:16 +0100
 categories: jekyll update
 ---
 
