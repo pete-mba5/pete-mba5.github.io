@@ -1,14 +1,14 @@
 ---
 layout: post
-title:  "corejant"
-date: 2024-02-26 10:12:16 +0100
+title:  "dallau"
+date: 2024-02-26 10:20:39 +0100
 categories: jekyll update
 ---
 
 
 
 
-![corejant]()*corejant*&nbsp;
+![dallau]()*dallau*&nbsp;
 
 
 
