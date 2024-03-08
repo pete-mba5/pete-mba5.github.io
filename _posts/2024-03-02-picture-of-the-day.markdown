@@ -13,7 +13,7 @@ I just realized that my i-clip wallet is broken.
 
 I finished "totes les bèsties de càrrega" from Pedrolo and I liked it a lot.  
 
-Now I am continuing with "The Rational Optimistic"   
+Now I am continuing with "The Rational Optimist"   
 
 Tomorrow is the Neckarufer Marathon.  
 
