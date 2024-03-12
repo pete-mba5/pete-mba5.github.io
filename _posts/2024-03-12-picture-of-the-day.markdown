@@ -13,7 +13,7 @@ I played my bass for one hour today.
 
 
 
-![oblideu](https://lh3.googleusercontent.com/pw/AP1GczOGZz9j7MbPcumSe5lYf9Nb50SpTts7A_7tpIztY-YcM_vMUvKQ6C86Zz2-T0zbhYFMdcboa1o9LW0AIZC6CXSuEih5iDFbWzSRu_egOMplLOG5K9JI=w2400)*oblideu*&nbsp;
+![oblideu](https://lh3.googleusercontent.com/pw/AP1GczOUkvaASiUTzMoKco6Q4b98YwU_vwBZj0Q8d8SojVy5j15BJZq_VVb58unvCjN2tJn_IzHyc1C9_nCW29k7XEvRtwbLXSMRjTH_F1L80oUIxptapko=w2400)*oblideu*&nbsp;
 
 
 
