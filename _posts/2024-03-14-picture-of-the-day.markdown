@@ -7,11 +7,11 @@ categories: jekyll update
 
 It was quite chill in the early morning. It is the typical spring temperature gradient.  
 
-I was able to swim the second 500m quite faster than the first one. It was 1:42 for the first round and 1:37 for the second.   
+I was able to swim the second 500m quite faster than the first one. 1:42/100m for the first round and 1:37/100m for the second.   
 
-I am pretty happy with this progression. Let's see if in the future they will allow me again to fo the turn on the wall. For the time being, I am banned from it. We are too many swimmers and I was involved in some argues becasuse of hits.   
+I am very happy with this progression. Let's see if in the future they will allow me again to do the turn on the wall. For the time being, I am banned from it. We are too many swimmers and I have been involved in argues too many times.   
 
-I read a little bit of Feynman's book. Conservation of the energy. It is pretty boring this chapter.  
+I read a little bit of Feynman's book. Conservation of the energy. It is an extremely boring chapter.  
 
 I was alone in the office. Does it make any sense at all to go there? The answer is yes. It makes sense for socializing but not for working. I quickly arranged a lunch with my friend Boris and we had a good time during the break. 
 
