@@ -7,7 +7,7 @@ categories: jekyll update
 
 Although feeling myself very week, I swam my fastest 1000m so far at 1:37/100m and ran my fastest mile in 5:59.  
 
-I has been a quiet day at home. I need to recover. I am afraid that I have a flu or similar.  
+It has been a quiet day at home. I need to recover. I am afraid that I have a flu or similar.  
 
 I finally pruned my hydrangeas.
 
