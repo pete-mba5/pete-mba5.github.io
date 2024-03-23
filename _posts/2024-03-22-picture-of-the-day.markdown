@@ -5,7 +5,7 @@ date: 2024-03-22 08:03:04 +0100
 categories: jekyll update
 ---
 
-I went to my oldest son to the mall. We purchased my sister's birthday gift for him. It was a great time.  
+I went with my oldest son to the mall. We purchased my sister's birthday gift for him. It was a great time.  
 
 I finished Feynman's book "6 easy pieces". I liked it a lot. I started another Pedrolo's novel.
 
