@@ -12,7 +12,7 @@ I need to review the video for adjusting the gears in my bike.
 
 
 
-![xarboti]()*xarboti*&nbsp;
+![xarboti](https://lh3.googleusercontent.com/pw/AP1GczPFf8FUNGXJGVcziGLRCPOGhKiTRsJMqRNfQQ3QH9yfFAKqAS8DF1vPSdYIU1Oqbw5CMVeclEZlLT79_1aikFitWjFZqd7uQ6RU-IBkXQs9LWGbSYw=w0)*xarboti*&nbsp;
 
 
 
