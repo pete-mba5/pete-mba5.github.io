@@ -14,7 +14,7 @@ David Asprey's book is something strange. I am feeling like we are doomed and th
 
 
 
-![xacat]()*xacat*&nbsp;
+![xacat](https://lh3.googleusercontent.com/pw/AP1GczP_HnKsWdcvypEnkyUDKCAkuQliAkFcH8YmyFnVvzbqgswaSg1EiRylZ9OBZ9_adkCytVKkf4-c_f4YWsDPHdLGM4_q02muaZ8oLIlPNrtL381fkoc=w0)*xacat*&nbsp;
 
 
 
