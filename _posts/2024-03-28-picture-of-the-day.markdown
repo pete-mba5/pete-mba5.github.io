@@ -9,9 +9,9 @@ It was a great day of ski in Kitzbühel. I snowed a lot in the afternoon. Kids h
 
 I ran along the river while snowing. It was really cold. My shoes are now over the heating. Let's see how they will be tomorrow morning.   
 
-I kept reading Mr. Asprey's book. I am checking every page how many more minutes I will need to complete it. What a non-sense book.   
+I kept reading Mr. Asprey's book. I am checking constantly how many minutes I will need to complete it. What a non-sense book.   
 
-4 hours after finishing ski, I am still having very sensitive fingertíps.  
+4 hours after finishing ski, I am still having very sensitive fingertips.  
 
 
 
