@@ -20,7 +20,7 @@ The couch needs a renewal. Let's see what I will finally do.
 
 
 
-![dessoli]()*dessoli*&nbsp;
+![dessoli](https://lh3.googleusercontent.com/pw/AP1GczPGR3jgDXBGO45gaTaqLOc4kGIcBpsqw0uX6OuAe1Ik_xfsQDYBCRPpwLNhw0D2tfBOpt8ljxoEGn3YmRuRtMBSBYQeNAalkeAgIphHnPGziosOzsM=w0)*dessoli*&nbsp;
 
 
 
