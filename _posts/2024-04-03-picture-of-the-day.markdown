@@ -14,7 +14,7 @@ The stretching session went very well. I am feeling better in the psoas area. I 
 
 
 
-![fondejar]()*fondejar*&nbsp;
+![fondejar](https://lh3.googleusercontent.com/pw/AP1GczOEsn5Tu10ze-556ozwg7ScPYc51ZX93DG-P4aJfpUeyRiBfO3GM-sH67EhhSSzVwGjuXoKiPNJ1vxQ4wGBkiP8pEIeqARDKPROvajqup-o17Rebiw=w0)*fondejar*&nbsp;
 
 
 
