@@ -5,6 +5,7 @@ date: 2024-04-18 07:57:00 +0200
 categories: jekyll update
 ---
 
+It is raining a lot. The time to test my bike rain clothes arrived. Let's see how good or bad they are.
 
 
 
