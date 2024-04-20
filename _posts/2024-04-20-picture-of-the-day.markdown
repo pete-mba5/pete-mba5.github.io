@@ -15,8 +15,12 @@ Somehow I am losing interest in Naomi's book "The Future". Let's see what is goi
 
 My youngest kid got some throat ache. I really hope that this is not again a cold or flu.
 
+I finished my Pegasus 36 running shoes. They have been by far the best of the series. In case I find a sale on internet for this precise model, I would need a bigger size US 10,5.  
 
-![borregin]()*borregin*&nbsp;
+
+
+
+![borregin](https://lh3.googleusercontent.com/pw/AP1GczOoAnfh0n5u0VvuVw3sAeB9FuIi0DcbeYvuYgRMsVeIKOqtFSWgl7oFt_GWh1NjNApaar5ONOfpt_HQuXmsX9q1jfbeYi8g6kZFgVvD7OYebJ_wRzs=w0)*borregin*&nbsp;
 
 
 
