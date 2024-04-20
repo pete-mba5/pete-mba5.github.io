@@ -5,10 +5,18 @@ date: 2024-04-20 07:52:26 +0200
 categories: jekyll update
 ---
 
+I slept at 87% Garmin quality rate. It is not bad.  
+
+The temperature dropped a lot. It is cold again.  
+
+The plan for today, in case it is not raining, is going to play basketball and study a little bit of history and physics.  
+
+Somehow I am losing interest in Naomi's book "The Future". Let's see what is going to come next.  
+
+My youngest kid got some throat ache. I really hope that this is not again a cold or flu.
 
 
-
-![borregin](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*borregin*&nbsp;
+![borregin]()*borregin*&nbsp;
 
 
 
