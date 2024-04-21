@@ -5,6 +5,16 @@ date: 2024-04-21 08:06:08 +0200
 categories: jekyll update
 ---
 
+I listened in a podcast some people saying that they do not listen to music. I cannot believe it.  
+
+"The Future" is getting a little bit better. I am now at 36% of it and kind of liking how it evolves.  
+
+I read how to quickly deteriorate the iPhone battery, I am going to test for a couple of weeks.  
+
+The experiment with crunchyroll did not work ok. I tried to test the premium account with a temp email. It looks like the only grant you this privilege if you provide a credit card. I need another approach.  
+
+Yesterday I was attacked by a dog while running. It was a matter of time. Too many people walking the dog unleashed.  
+
 
 
 
