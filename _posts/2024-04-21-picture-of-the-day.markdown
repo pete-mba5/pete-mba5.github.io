@@ -15,7 +15,7 @@ The experiment with crunchyroll did not work ok. I tried to test the premium acc
 
 Yesterday I was attacked by a dog while running. It was a matter of time. Too many people walking the dog unleashed.  
 
-I like the strava feature "flybys". I do no understand why grown up people keep their private. Today it was a nice running morning. I crossed with tenths of people. Some of them smiled.
+I like the strava feature "flybys". I do no understand why grown up people keep their accounts private. Today it was a nice running morning. I crossed with tenths of people. Some of them smiled.
 
 
 
