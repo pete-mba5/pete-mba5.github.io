@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "gammat"
-date: 2024-04-23 11:51:40 +0200
+date: 2024-04-22 11:51:40 +0200
 categories: jekyll update
 ---
 
