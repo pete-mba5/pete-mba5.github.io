@@ -5,11 +5,15 @@ date: 2024-04-25 07:56:40 +0200
 categories: jekyll update
 ---
 
-My car has been repaired and I am going to pick it up rigt after my run.
+My car has been repaired and I am going to pick it up rigt after my run.  
+
+After some months, we had the chance to hang around with Wolle again.  
+
+I have a new garage for my Alfa. Anyhow, the next regular maintenance won't be done there yet.
 
 
 
-![despague](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*despague*&nbsp;
+![despague](https://photos.app.goo.gl/QE435XkUQz3QpD85A)*despague*&nbsp;
 
 
 
