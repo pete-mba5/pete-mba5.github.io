@@ -5,7 +5,11 @@ date: 2024-04-27 08:34:09 +0200
 categories: jekyll update
 ---
 
+I am feeling good. Totally recovered. I will stretch and run a long one.  
 
+If everything works as expected, today it is going to be warm again and partially sunny. I will run just with a t-shirt and as soon as possible.  
+
+Naomi's book is getting more interesting. I am around 80% of it. I will finish it today.
 
 
 ![lledoner](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*lledoner*&nbsp;
