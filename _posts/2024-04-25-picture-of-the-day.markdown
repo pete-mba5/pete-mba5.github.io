@@ -13,7 +13,7 @@ I have a new garage for my Alfa. Anyhow, the next regular maintenance won't be d
 
 
 
-![despague](https://photos.app.goo.gl/QE435XkUQz3QpD85A)*despague*&nbsp;
+![despague](https://lh3.googleusercontent.com/pw/AP1GczPeaQqp4hW1wXxrPhHRXiCkKa8CICJyTtqOujrTQo6JJOx8F1LTwGWKhhUwy3-1RkKO_36toDqHtyrHYQKm-DS0P6BaMufdQrciLQIEYYBCgQpFobk=w0)*despague*&nbsp;
 
 
 
