@@ -9,7 +9,19 @@ I finally finished "The Future" by Naomi Alderman. I did not like it. The only e
 
 Now I am going to swim a little bit in Grötzingen and later, I will run the second part of my yesterday's marathon track.  
 
-While I am writing this, I am listening to a podcast of Cobla filarmònica playing jazz songs. It is so beautiful that I will make it a favorite and will listen quite often.  
+While I am writing this, I am listening to a podcast about Cobla filarmònica playing jazz songs. It is so beautiful that I will make it a favorite and will listen quite often.  
+
+The swimming went pretty ok. I was able to swim at 1:37-1:38. I was lucky today, just a couple of good swimmers in our dedicated lane.  
+
+The running was also ok. I was able to run 94% of the time in zone 2 and just 10s in zone 3.  
+
+I did my TWYOB strengh training and stretching. I took good care of my fitness today.  
+
+I changed my mind for lunch and did not prepare the aspargarous. I cooked yakisoba with vegetables instead. It was simply yummy.   
+
+I restarted a new book from Pedrolo "Cendra per Martina".
+
+
 
 
  
@@ -17,7 +29,7 @@ While I am writing this, I am listening to a podcast of Cobla filarmònica playi
 
 
 
-![inclini]()*inclini*&nbsp;
+![inclini](https://lh3.googleusercontent.com/pw/AP1GczNcG2MDZEIThqgFQrgatCoh7-qRdQXHmt8THTGaeqsUd1RmRvziDMh0bR8-bLVia1TZswm7HgtHpJ9uqm4F63CFFLUXYCT5vJdMM8ElzM51Cfh7MZI=w0)*inclini*&nbsp;
 
 
 
