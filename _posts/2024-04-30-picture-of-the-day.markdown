@@ -5,11 +5,11 @@ date: 2024-04-30 07:59:51 +0200
 categories: jekyll update
 ---
 
-Today we are having a team building at Wasen in Stuttgart. I a little bit nervous.   
+Today we are having a team building at Wasen in Stuttgart. I am a little bit nervous.   
 
 Pedrolo's book is fulfilling my expectations. Never disappointed.   
 
-I ran in the early morning and stretched. Today there is no strength training. I can relax and enjoy the rest of the day.  
+I ran in the early morning and stretched. Today there is no strength training. Now I can relax and enjoy the rest of the day.  
 
 
 
