@@ -5,10 +5,10 @@ date: 2024-05-01 13:09:45 +0200
 categories: jekyll update
 ---
 
+It is just about surviving today.
 
 
-
-![coten](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*coten*&nbsp;
+![coten](https://lh3.googleusercontent.com/pw/AP1GczP8VTlxsPStG5rANnFpxlrPBSwiMbW336T0_rUKz2dhO8hyuGX9-ORYsYKfeDNuQ_6SNNBLyfCFQ_DG017GKVOYMi9bfpzEEjQYCSIoCyXF_r1Ow14=w0)*coten*&nbsp;
 
 
 
