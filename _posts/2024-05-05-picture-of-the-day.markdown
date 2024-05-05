@@ -5,10 +5,16 @@ date: 2024-05-05 10:51:59 +0200
 categories: jekyll update
 ---
 
+We made it happen. We woke up early in the morning and went to swim our 1000m again Tim is improving a lot. One can notice it week by week.   
+
+I read almost one hour yesterday evening. It is really interesting how different can things be when the narrator is a another person. I like this book. I am thrilling for the chapter with the third protagonist.  
+
+My dad is going to finish within the next week all the books I had purchsased him. I have to look for new titles for his pipeline.   
+
+Today is not shiny, but my kids asked me for a barbecue and they will get it. One man, one word.
 
 
-
-![jaspiar](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*jaspiar*&nbsp;
+![jaspiar]()*jaspiar*&nbsp;
 
 
 
