@@ -5,10 +5,16 @@ date: 2024-05-06 09:22:17 +0200
 categories: jekyll update
 ---
 
+Today is the last chance to enjoy Groetzingen Hallenbad before the summer break. It is true, that we still will be able to visit it on Sundays, but once the Sun starts to hit, this will be very unrealistic.  
+
+I am feeling fully recovered. Anyhow, the Garmin is showing one of the worst scores of the month. I am not a data driven human.  
+
+Checking the weather now. I wonder if I wil have to bike in the rain again.  
 
 
 
-![pel](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*pel*&nbsp;
+
+![pel]()*pel*&nbsp;
 
 
 
