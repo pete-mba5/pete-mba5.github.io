@@ -7,16 +7,16 @@ categories: jekyll update
 
 I discovered an AI to produce Haikus online. I was in bad mood because some managerial answer to a request. I decided to play with the AI. Below the result:
 
-Exceptionless,
-rule remains unbroken,
+Exceptionless,   
+rule remains unbroken,   
 obedience reigns.
 
-No exception here,
-rule stands tall and firm,
+No exception here,   
+rule stands tall and firm,   
 order maintained.
 
-No one exempted,
-rule stands steadfast,
+No one exempted,   
+rule stands steadfast,   
 harmony abounds.
 
 
