@@ -19,7 +19,7 @@ Yesterday night I started a new book about the human brain. It is called "A brie
 
 
 
-![rumba]()*rumba*&nbsp;
+![rumba](https://lh3.googleusercontent.com/pw/AP1GczPoH1hxtKu3wMRAJVOWCTNQ-k3yY2JhMYp-j7Y3S4bN3GTJriW4egcUgt_xD1PRpck6onJBCD2q_9qTHKDCBuNwQ7kwJkgExtRBwo4NfhQE4wQ9FNw=w0)*rumba*&nbsp;
 
 
 
