@@ -9,7 +9,13 @@ Today is a bank holiday here. I will spend the day with my kids. The Sun will sh
 
 Today is the first day of the pool summer season. I need a season card. The best offer is the family one. It consists of free entrance to 4 different open air pools for 4 months, for 4 family members and just 300EUR. If only one member of the family is going for a swim for two months daily, the cost is already covered. It is perfect for me.  
 
-I am a little bit upset that my tiny macbook air's battery is not lasting a lot. Anyhow, I do not need it too many hours a day. It seems to be a superfluous need. I will observe it. Maybe it will dissipate soon.
+I am a little bit upset that my tiny macbook air's battery is not lasting a lot. Anyhow, I do not need it too many hours a day. It seems to be a superfluous need. I will observe it. Maybe it will dissipate soon.  
+
+I ran 12k with the Women Ultraboost. Today it went a little bit better. Maybe the trick is using the ultra thin socks.   
+
+Since I am running without music, I am enjoying the noises in the nature and even my internal chatting. Today I was wondering about different dishes I could prepare along these days. I am pretty sure that I won't do any of them now.   
+
+
 
 
 
