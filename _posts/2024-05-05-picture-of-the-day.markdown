@@ -14,7 +14,7 @@ My dad is going to finish within the next week all the books I had purchsased hi
 Today is not shiny, but my kids asked me for a barbecue and they will get it. One man, one word.
 
 
-![jaspiar]()*jaspiar*&nbsp;
+![jaspiar](https://lh3.googleusercontent.com/pw/AP1GczO5O05x6yaONFHJScWvx22jm2o5WIkHYV68H-IIztWuEgwWxgBsR0Z2VafNj4EC0ClMr7YUM-mXMGasRudq7QsZyg0VECz8Zam71RCtQn5-FNwSFKE=w0)*jaspiar*&nbsp;
 
 
 
