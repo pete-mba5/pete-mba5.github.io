@@ -15,12 +15,14 @@ I ran 12k with the Women Ultraboost. Today it went a little bit better. Maybe th
 
 Since I am running without music, I am enjoying the noises in the nature and even my internal chatting. Today I was wondering about different dishes I could prepare along these days. I am pretty sure that I won't do any of them now.   
 
+I was somehow tired today and have slept a little bit after the lunch.
 
 
 
 
 
-![valgut]()*valgut*&nbsp;
+
+![valgut](https://lh3.googleusercontent.com/pw/AP1GczN0YGSs3No3l82wi37xM-d2pJGbE0iR-90ZXldwNQPfgxoh8hT5q3x234Hv3jG6TYHlv3A_xzi0JKW9qpC-RlfyxfPBpFbB-uqA9FXgReJJDpSOrr8=w0)*valgut*&nbsp;
 
 
 
