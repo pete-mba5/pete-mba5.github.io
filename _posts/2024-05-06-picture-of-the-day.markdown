@@ -14,7 +14,7 @@ Checking the weather now. I wonder if I wil have to bike in the rain again.
 
 
 
-![pel]()*pel*&nbsp;
+![pel](https://lh3.googleusercontent.com/pw/AP1GczOzU36_mSM3Iepahe0M0eJ5W4mxvymbP5LmHXiR-Gbsi2S1J5L7McSJ7iyY0PJtQYKoGy_XHRVpuuxK8wPB8AD7KOt2LHqQViH3u4pUXPcSZ1UoUtA=w0)*pel*&nbsp;
 
 
 
