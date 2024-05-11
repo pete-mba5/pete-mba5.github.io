@@ -5,10 +5,20 @@ date: 2024-05-11 11:30:08 +0200
 categories: jekyll update
 ---
 
+I am having a headache. Maybe too much sun, yesterday.  
+
+We went to the Freibad and had a great time with Timmy. There was almost no one. The plan for today is to get our pictures done and purchase the family season card.   
+
+Swimming again in a 50m pool is a weird story. I felt like I was not progressing as fast as I am usually doing in the 25m one.  
+
+Although I felt that I was swimming slow, I made my 1000m easily. When I checked the record, It has been almost 12s slower per 100m. I was wrecked. What a poor performance...   
+
+Let's see what I will do today.  
+
+ 
 
 
-
-![brotxar](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*brotxar*&nbsp;
+![brotxar]()*brotxar*&nbsp;
 
 
 
