@@ -18,7 +18,7 @@ Let's see what I will do today.
  
 
 
-![brotxar]()*brotxar*&nbsp;
+![brotxar](https://lh3.googleusercontent.com/pw/AP1GczOaiQEzoRrJqxvIYiJdN9jk4wbAYxQmFpEni_MisL4BxHHc4HvxRfPaHmTKLWOtgd5GTQOT8e-z6MbhEFLqjCFdaAiA0RbpsPxWaXupC7fGHVaF-u0=w0)*brotxar*&nbsp;
 
 
 
