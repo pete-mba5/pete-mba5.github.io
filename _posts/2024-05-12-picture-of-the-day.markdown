@@ -22,7 +22,7 @@ Today we will invest a big chunk of the day studying biology with my oldest son.
 
 
 
-![grillau](https://lh3.googleusercontent.com/pw/AP1GczOaiQEzoRrJqxvIYiJdN9jk4wbAYxQmFpEni_MisL4BxHHc4HvxRfPaHmTKLWOtgd5GTQOT8e-z6MbhEFLqjCFdaAiA0RbpsPxWaXupC7fGHVaF-u0=w0)*grillau*&nbsp;
+![grillau](https://lh3.googleusercontent.com/pw/AP1GczPfVo-XjTAV-seGQh1J8QYo9SNIY8uAszZax1onhF9VtB5rfmVl04F5y5_WmmS6oizfBS02wk_akgPblNvT_1aiqlg-O4xQ4wrrdfZgK-objxverLQ=w0)*grillau*&nbsp;
 
 
 
