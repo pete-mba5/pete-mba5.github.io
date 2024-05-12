@@ -7,6 +7,11 @@ categories: jekyll update
 
 Listening to a podast. They say, less agreeable people make more money. What a surprise.  
 
+It is going to be a very hot day. Let's run immediately in the morning. I put my running clothes on the Sun to get them dry. A 12k run will suffice today.  
+
+  
+
+
 
 
 
