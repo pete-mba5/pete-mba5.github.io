@@ -5,6 +5,8 @@ date: 2024-05-12 08:53:50 +0200
 categories: jekyll update
 ---
 
+Listening to a podast. They say, less agreeable people make more money. What a surprise.  
+
 
 
 
