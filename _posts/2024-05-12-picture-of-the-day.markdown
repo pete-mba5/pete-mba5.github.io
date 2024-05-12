@@ -9,13 +9,20 @@ Listening to a podast. They say, less agreeable people make more money. What a s
 
 It is going to be a very hot day. Let's run immediately in the morning. I put my running clothes on the Sun to get them dry. A 12k run will suffice today.  
 
+Yesterday at the pool, I met a guy that is working and living in Graz but was born and raised in the closest town to my village. What a funny coincidence. It was sad to see how fast you can forget your mothertonge.   
+
+Yesterday evening I was reading a little bit more of the "intelligence" book from Max Bennet. I am liking it a lot.   
+
+Today we will invest a big chunk of the day studying biology with my oldest son.   
+
+
   
 
 
 
 
 
-![grillau](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*grillau*&nbsp;
+![grillau](https://lh3.googleusercontent.com/pw/AP1GczOaiQEzoRrJqxvIYiJdN9jk4wbAYxQmFpEni_MisL4BxHHc4HvxRfPaHmTKLWOtgd5GTQOT8e-z6MbhEFLqjCFdaAiA0RbpsPxWaXupC7fGHVaF-u0=w0)*grillau*&nbsp;
 
 
 
