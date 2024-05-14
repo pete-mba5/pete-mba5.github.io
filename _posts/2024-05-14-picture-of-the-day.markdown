@@ -13,10 +13,12 @@ Today it is going to be a long day of work and I won't swim. I will run in the l
 
 I listened to a podcast about to do lists. I will read the book of the guest. It was from a google manager. It was nothing new. It sounded like the getting things done.   
 
+I am having a great time with Deepak. We are laughing a lot. This is healthy.
 
 
 
-![jonquera()*jonquera*&nbsp;
+
+![jonquera]()*jonquera*&nbsp;
 
 
 
