@@ -5,10 +5,18 @@ date: 2024-05-14 06:04:06 +0200
 categories: jekyll update
 ---
 
+I'm working in Suttgart today.   
+
+I am tired.   
+
+Today it is going to be a long day of work and I won't swim. I will run in the late afternoon or evening.   
+
+I listened to a podcast about to do lists. I will read the book of the guest. It was from a google manager. It was nothing new. It sounded like the getting things done.   
 
 
 
-![jonquera](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*jonquera*&nbsp;
+
+![jonquera()*jonquera*&nbsp;
 
 
 
