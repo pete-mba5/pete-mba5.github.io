@@ -4,6 +4,14 @@ title:  "botim"
 date: 2024-05-15 06:50:35 +0200
 categories: jekyll update
 ---
+I am feeling ok.   
+
+I have written a mail to my friend Abhilash.  
+
+Yesterday evening I was reading a book called "Irresistible" by Adam Alter. I do not know what to think about it yet.   
+
+The weather is pretty cloudy today. Anyhow, I will be in the pool swimming in the afternoon.  
+
 
 
 
