@@ -9,6 +9,12 @@ The plan for today is driving to Strassburg and visit a shoe store with a very n
 
 My car is making some strange noise again. No clue what this could be. I really hope it is not the turbo. It happens at low rpm while moving. I read a little bit in internet and got a little bit scared. Fingers crossed.   
 
+Yesterday I almost cannot take my car from the mall parking. I totally forgot that at 20:30 the mall is closing...   
+
+I will activate today my DIGI unlimited internet sim card.   
+
+
+
 
 
 
