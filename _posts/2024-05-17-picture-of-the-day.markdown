@@ -5,10 +5,20 @@ date: 2024-05-17 08:35:23 +0200
 categories: jekyll update
 ---
 
+It has been a very productive day. I finished some important things. This made me very happy.   
+
+All the time invested preparing my son's exams payed off. He got a 1-2 in history. Seeing his proud and happiness made my day. We went to the city to have a burger and explore some sport shoes.   
+
+It rained the whole day. Anyhow, I went to run a very short 3 miler rount. I got soaked to the bones.  
+
+I am still struggling with my neck and my knees. No clue what this is, but it is painful.  
+
+
+ 
 
 
 
-![mongol](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*mongol*&nbsp;
+![mongol]()*mongol*&nbsp;
 
 
 
