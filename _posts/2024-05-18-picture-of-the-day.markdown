@@ -5,10 +5,14 @@ date: 2024-05-18 08:25:39 +0200
 categories: jekyll update
 ---
 
+The plan for today is driving to Strassburg and visit a shoe store with a very new and specific model. Let's see how lucky we will be.   
+
+My car is making some strange noise again. No clue what this could be. I really hope it is not the turbo. It happens at low rpm while moving. I read a little bit in internet and got a little bit scared. Fingers crossed.   
 
 
 
-![cunibert](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*cunibert*&nbsp;
+
+![cunibert]()*cunibert*&nbsp;
 
 
 
