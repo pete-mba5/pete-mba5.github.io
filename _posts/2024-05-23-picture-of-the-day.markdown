@@ -5,10 +5,18 @@ date: 2024-05-23 06:38:12 +0200
 categories: jekyll update
 ---
 
+Yesterday was a long day of work. I did it all with the SIM router.   
+
+It rained a lot.   
+
+I met my oldest cousine on the street. I could not recognize her. We get older.   
+
+Today we will do some tourism in Barcelona. I would like to visit one of the bars/restaurants from the podast "la Fonda".   
 
 
 
-![jogasser](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*jogasser*&nbsp;
+
+![jogasser]()*jogasser*&nbsp;
 
 
 
