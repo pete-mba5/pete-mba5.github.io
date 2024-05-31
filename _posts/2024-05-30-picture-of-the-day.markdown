@@ -15,7 +15,7 @@ I read a little bit more of the "Irresistible" book.
 
 
 
-![solege]()*solege*&nbsp;
+![solege](https://lh3.googleusercontent.com/pw/AP1GczMt4VIXOAzNEo3s_Xx6UCaD3H63Lw1PnEJd0vlFXY2U2pwuAWG9iOd3DDDn0kggdUCyVUv-xH0d5r-OTx1ywXe28a3eZYPmaW1w4kVs_NoBeRL3GLU=w0)*solege*&nbsp;
 
 
 
