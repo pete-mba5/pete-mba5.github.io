@@ -5,10 +5,17 @@ date: 2024-06-03 09:30:04 +0200
 categories: jekyll update
 ---
 
+It was a hard day back in the office. I had to fix urgent things and read 
+infinite emails. Tomorrow everything will be under control.   
+
+I read "Irresistible". Maybe tonight I'll finished it. I am feeling like there are very few new things being said in the latest part.   
+  
+My training today was very low quality. I am seeing the end of the daily running very soon.  
 
 
 
-![gemisca](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*gemisca*&nbsp;
+
+![gemisca]()*gemisca*&nbsp;
 
 
 
