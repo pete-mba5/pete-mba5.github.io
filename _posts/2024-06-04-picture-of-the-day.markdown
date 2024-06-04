@@ -5,10 +5,20 @@ date: 2024-06-04 09:29:15 +0200
 categories: jekyll update
 ---
 
+I finished "Irresistible". I liked it.   
+
+I am feeling some stomach ache.  
+
+I am considering some changes in the garden.  
+
+I will go to swim today.  
 
 
 
-![classer](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*classer*&nbsp;
+
+
+
+![classer]()*classer*&nbsp;
 
 
 
