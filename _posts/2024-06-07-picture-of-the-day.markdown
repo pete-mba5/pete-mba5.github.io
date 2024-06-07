@@ -5,6 +5,12 @@ date: 2024-06-07 15:04:38 +0200
 categories: jekyll update
 ---
 
+Last night I read a little bit more from Scott Adams' book.   
+
+It was a nice morning. I took the time to go to swim in Rüppurr. There was almost no one. What a feeling swimming alone in an olympic pool.   
+
+The weather is excellent and the weekend is getting closer. I will enjoy every minute.   
+
 
 
 
