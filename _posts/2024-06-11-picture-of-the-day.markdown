@@ -5,10 +5,15 @@ date: 2024-06-11 15:03:53 +0200
 categories: jekyll update
 ---
 
+Studying mathematics with my oldest one.  I am a very bad teacher but I have more patience than I ever thought.   
+
+I went to swim during the lunch break. We just were two people in a 50m olympic pool.  
 
 
 
-![negrejar](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*negrejar*&nbsp;
+
+
+![negrejar]()*negrejar*&nbsp;
 
 
 
