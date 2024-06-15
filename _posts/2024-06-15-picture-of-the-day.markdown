@@ -5,10 +5,12 @@ date: 2024-06-15 15:15:17 +0200
 categories: jekyll update
 ---
 
+It is a rainy day, but I went to swim to the open air pool. We just were 3 pople there and the watcher under the umbrella.  When the clouds went and the Sun shined, my energy went high. It is a beautiful experience swiming and seeing your shadow at the floor of the pool following you.   
 
 
 
-![jacteu](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*jacteu*&nbsp;
+
+![jacteu]()*jacteu*&nbsp;
 
 
 
