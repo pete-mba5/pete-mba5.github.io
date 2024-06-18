@@ -5,10 +5,20 @@ date: 2024-06-18 06:47:48 +0200
 categories: jekyll update
 ---
 
+With my run today I will complete 3 years of daily run. This will be the end of the streak. I am starting to have unbearable pain in my joins. Specially both ankles.  
+
+It is raining again. What a summer. Let's see what happen in August.   
+
+I read Scott Adams' book last evening. I did not like it so much and jumped to Balaji's one. It was ok for 20mins, but I finally got bored and switched for Max Bennet's "Brief History of Intelligence". I kept reading it until my eyes closed themselves.   
+
+Yesterday evening, while walking around the neighborhood, I saw white geraniums. They are really beautiful. I will look for some in the internet.  
 
 
 
-![ubicant](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*ubicant*&nbsp;
+
+
+
+![ubicant]()*ubicant*&nbsp;
 
 
 
