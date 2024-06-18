@@ -5,9 +5,9 @@ date: 2024-06-18 06:47:48 +0200
 categories: jekyll update
 ---
 
-With my run today I will complete 3 years of daily run. This will be the end of the streak. I am starting to have unbearable pain in my joins. Specially both ankles.  
+With my run today I will complete 3 years of daily run. This will be the end of the streak. I am starting to have unbearable pain in my joints. Specially both ankles.  
 
-It is raining again. What a summer. Let's see what happen in August.   
+It is raining again. What a summer. Let's see what happens in August.   
 
 I read Scott Adams' book last evening. I did not like it so much and jumped to Balaji's one. It was ok for 20mins, but I finally got bored and switched for Max Bennet's "Brief History of Intelligence". I kept reading it until my eyes closed themselves.   
 
