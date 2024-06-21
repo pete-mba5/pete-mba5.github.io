@@ -5,10 +5,18 @@ date: 2024-06-21 08:08:50 +0200
 categories: jekyll update
 ---
 
+Yesterday I forgot my company card and discovered a funny thing. There is no way you can print private documents without the card.  
+
+The rubber from my swimming googles got broken yesterday. I was observing it and also looking for spare parts in the internet. Luckily I have a tiny head and could easily fix it with the rest of the band.   
+
+I need to go to the office again. Today it is a rainy day and finding the right time window for the commute will be challenging. Target is not end totally soaked.   
+
+There are that much mosquitos that makes no fun being outside. In the pool it is really annoying.  
 
 
 
-![influent](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*influent*&nbsp;
+
+![influent]()*influent*&nbsp;
 
 
 
