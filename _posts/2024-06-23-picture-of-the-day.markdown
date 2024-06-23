@@ -5,10 +5,16 @@ date: 2024-06-23 16:53:52 +0200
 categories: jekyll update
 ---
 
+I woke up very tired today. I just went to run and kept the rest of the day doing very few things. It was ok, because I had no previous plan for today.   
+
+I am mainly reading the Balaji's book. Yesterday evening I could not continue reading a little bit of the 4 books I have lately started. I was mentally exhausted.   
+
+I cooked a very easy and fast Pak Choi dish. I was very impressed about the results.   
 
 
 
-![fetgera](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*fetgera*&nbsp;
+
+![fetgera]()*fetgera*&nbsp;
 
 
 
