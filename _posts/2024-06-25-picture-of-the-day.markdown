@@ -5,10 +5,11 @@ date: 2024-06-25 06:46:14 +0200
 categories: jekyll update
 ---
 
+I have broken my googles strap 3 times today. Welcome to the bad old days.
 
 
-
-![borinor](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*borinor*&nbsp;
+![borinor](https://lh3.googleusercontent.com/pw/AP1GczMKnVgXBn_j-4l5Zsi_-3IJZUtaIUrgiws1NuGnuz5D7Fsz4041KEkdN-z63GTTvMVjogAAFWb65HcEV5_2-pudf5yHDDw3RNJtFLqXXHiexgrCzxY=w0
+)*borinor*&nbsp;
 
 
 
