@@ -14,7 +14,7 @@ I cooked a very easy and fast Pak Choi dish. I was very impressed about the resu
 
 
 
-![fetgera]()*fetgera*&nbsp;
+![fetgera](https://lh3.googleusercontent.com/pw/AP1GczMnuUasqaJ0o7Zn2JwAeWDzXUkymnM5u7QcyrDcEdLCTHCxLmckTn4Of9z_dWcuyQ9iB-xinl-6k5litGEmEStjJg8CFGoUFHl2VwozE9KXp1Ek8K4=w0)*fetgera*&nbsp;
 
 
 
