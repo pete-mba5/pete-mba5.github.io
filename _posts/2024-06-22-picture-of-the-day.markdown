@@ -12,7 +12,7 @@ I planned a couple of things in the early morning and I executed them without th
  
 
 
-![ignoreu]()*ignoreu*&nbsp;
+![ignoreu](https://lh3.googleusercontent.com/pw/AP1GczPEZNSMfFa9hbQuQbZQkOMgAl1T1ceefAL2DjgLH487W3JIlF3wzDGPqnOG8RKAf0eAMv1GyVXccTHlXq7q2WsO5ItXZwR3MYuTLamhbCb8EDkIjKE=w0)*ignoreu*&nbsp;
 
 
 
