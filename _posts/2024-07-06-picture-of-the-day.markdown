@@ -5,10 +5,17 @@ date: 2024-07-06 14:41:26 +0200
 categories: jekyll update
 ---
 
+It is a rainy day again.   
+
+I slept a lot but I am still not feeling recovered.   
+
+I have literally no clue what I am going to do today.   
+
+I listened to a podcast about videogames. 100% nostalgy. I liked it.
 
 
-
-![esbarria](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*esbarria*&nbsp;
+![esbarria](https://lh3.googleusercontent.com/pw/AP1GczPRnITHYZonFTxQ-Gfm2xZSeriCtIGZ5Dj8L8pqP_LlByIcy3z69HjWjuErzbz8yWu_neRl8gMj8KKSy4Bf3tLqbfiod-T0x2WftJGuBGbjdwNLVr4=w0
+)*esbarria*&nbsp;
 
 
 
