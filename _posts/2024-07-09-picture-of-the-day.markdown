@@ -17,7 +17,7 @@ This is a very weird week. I will be in the office almost every single day. Sham
 
 
 
-![quadrivi]()*quadrivi*&nbsp;
+![quadrivi](https://lh3.googleusercontent.com/pw/AP1GczN1G_SDjfPp3B6RldTA4rD0RdAXR0XZtbbUNalMN-gnJ0fDgC2b3JhBT1DSM5XIuY0lJTUwIm1aktC8BRKPZxdE1h0LuH1LMheJ7vVtHCoIKv68crk=w0)*quadrivi*&nbsp;
 
 
 
