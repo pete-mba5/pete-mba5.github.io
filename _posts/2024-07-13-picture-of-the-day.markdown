@@ -9,10 +9,10 @@ Today the iPhone's battery decreased another 1%. Now the battery health is 82%. 
 
 Today I tried in the afternoon to swim 100 and resulted 1:29. Not bad for an old man.   
 
-The 
+The experiment with the burger resulted ok.
 
 
-![redius](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*redius*&nbsp;
+![redius](https://lh3.googleusercontent.com/pw/AP1GczMubUfn5H8tE91KHiN2am7djZ985i-D33SydFyn3gMKU3oVIu8AgwxvSZ_40DpIuEgte2zah4kTesUKRy4J23XZavsD9tT8NbPsPSDWimCc2Z-afBo=w0)*redius*&nbsp;
 
 
 
