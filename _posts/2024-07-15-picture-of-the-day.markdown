@@ -5,10 +5,12 @@ date: 2024-07-15 10:14:09 +0200
 categories: jekyll update
 ---
 
+Today a carpenter came home to repair the door. It was entertaining and funny being there helping him. Some of the tools he had were not properly maintained and this made him complain a lot. It was not a fine work, but I hope that this will last at least a couple of years.   
 
 
 
-![execrau](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*execrau*&nbsp;
+
+![execrau](https://lh3.googleusercontent.com/pw/AP1GczMFiRuCZiKbQnSpayHHPC2Wsuge6z7zJoiQenhZy0MxrggXAtfR6u1vyAyMwQVmx2uyzWDjk2D1mBO8aVgTX7wTtwrrZBzNSzyu4oMqGR3kkhHm5xk=w0)*execrau*&nbsp;
 
 
 
