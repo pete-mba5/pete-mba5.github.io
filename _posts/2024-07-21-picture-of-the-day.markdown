@@ -5,10 +5,18 @@ date: 2024-07-21 13:25:13 +0200
 categories: jekyll update
 ---
 
+I finished Scott Adams' book. I liked how he summarized the most important points in the last chapter. Funny, you do not need to read the book at all. Anyhow, it was a light and entertaining read.   
+
+I sletp like a human being again. 80%.  
+
+Yesterday we went to the Rheinstrandbad and was totally crowded. It was ok and according to the plan. Yesterday was the hottest day of the 2024.   
+
+I finished creating my new private accounts for tracking my trainings. I am out of sports social media.   
 
 
 
-![jorba](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*jorba*&nbsp;
+
+![jorba]()*jorba*&nbsp;
 
 
 
