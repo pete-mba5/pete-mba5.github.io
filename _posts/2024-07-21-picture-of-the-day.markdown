@@ -13,10 +13,14 @@ Yesterday we went to the Rheinstrandbad and was totally crowded. It was ok and a
 
 I finished creating my new private accounts for tracking my trainings. I am out of sports social media.   
 
+We went to the pool and found some kids from school. Tim played with them for hours. It was like he was with them last week. I liked it a lot seeing them playing. I also used this time to stretch.  
+
+I lost two connection trains because of unexpected delays. 
 
 
 
-![jorba]()*jorba*&nbsp;
+
+![jorba](https://lh3.googleusercontent.com/pw/AP1GczMKRzoY6UYcrzRKzmsfUde8SeHwjCBiHVe482nQi7BLGHDGl16fFog0ftbX7CjUGcLB7ZgZ0tMZiei0bld9VpPP6pQTLTG4fXPF9ogFJHaaiwTZQVQ=w0)*jorba*&nbsp;
 
 
 
