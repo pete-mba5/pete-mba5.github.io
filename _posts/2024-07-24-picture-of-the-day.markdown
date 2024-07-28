@@ -5,10 +5,10 @@ date: 2024-07-24 08:47:06 +0200
 categories: jekyll update
 ---
 
+First day of the school's holidays. Durlach pool was almost empty. I swam again like a king.
 
 
-
-![xipollar](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*xipollar*&nbsp;
+![xipollar](https://lh3.googleusercontent.com/pw/AP1GczPoTpUrvD0fVMsIMaiqcz7JxRUrA91ukRx_xVEGipJ3eAvTn4ZHQmefitHbjyVZLAcyB9rLX58qBCR_sDFvLnSXJESAbVlzv94AuSsN_MzK6UGRTsM=w0)*xipollar*&nbsp;
 
 
 
