@@ -5,10 +5,18 @@ date: 2024-07-28 06:59:39 +0200
 categories: jekyll update
 ---
 
+Listening to a podast with a Venezuelan politician. Wikipedia says she is an Industrial Engineer. My question is, why?   
+
+The weather is going to be bad today. Thank God!   
+
+Timmy wanted to bake muffins. We did it close to midnight. It worked pretty well. He is a very talented cook.   
+
+Yesterday night I read a little bit more of "Slow Productivity" and "a brief History of Intelligence"   
+
+I will run and swim in a minute.  
 
 
-
-![unflant](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*unflant*&nbsp;
+![unflant]()*unflant*&nbsp;
 
 
 
