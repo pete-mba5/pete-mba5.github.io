@@ -5,10 +5,12 @@ date: 2024-07-23 16:28:51 +0200
 categories: jekyll update
 ---
 
+It was the pizza day with the colleagues. It resulted a nice evening. Everybody was pleased and enjoy it.   
+
+I was overprepared, but this pays out. Peace of mind.
 
 
-
-![locionen](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*locionen*&nbsp;
+![locionen](https://lh3.googleusercontent.com/pw/AP1GczOCCocHZsInqQ3eN0daFITFqW8iGfMt3nk9DYvI3NNG3R5TnKbLrEyzk1SOsLgUrDJ0wel20QguXTMbdTp0KWxxf0oL8z82eMY-WfbRonnDNjFMWA4=w0)*locionen*&nbsp;
 
 
 
