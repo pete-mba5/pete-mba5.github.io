@@ -5,10 +5,10 @@ date: 2024-07-25 22:00:09 +0200
 categories: jekyll update
 ---
 
+Updating the pictures in the webpage while listening to the podcast with the Venezuelan populist rich politician. No surprises so far.
 
 
-
-![astorant](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*astorant*&nbsp;
+![astorant](https://lh3.googleusercontent.com/pw/AP1GczOmzQgQyEWaXj6FhW3-HSbQ9m31xBCNca2NHmKMmdIcwfPAy7iqlN4kvTj8T1ueEGs2pdpMbGwiHZGgr35dK-2j1HXnlGTle2luxZVCV20T2tO7UKE=w0)*astorant*&nbsp;
 
 
 
