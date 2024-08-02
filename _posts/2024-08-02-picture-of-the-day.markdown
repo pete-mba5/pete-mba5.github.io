@@ -5,10 +5,18 @@ date: 2024-08-02 08:36:37 +0200
 categories: jekyll update
 ---
 
+I am back to normal. I slept like a baby.   
+
+"Slow Productivity" is starting to be a tedious read. I will finish as soon as possible.   
+
+The weather changed again and now it is cloudy and mild. Let's see if the pool is empty again.   
+
+I received my blue swimming googles in less than 24h. For me this is the fastest Amazon delivery I have ever had. I will test them today. In my opinion it wasn't the brown googles but the quality of the water, but let's see today if I see better with the blue ones.   
+
+Lebara is offering new interesting products. I will evaluate them and decide after the holidays.
 
 
-
-![garbella](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*garbella*&nbsp;
+![garbella]()*garbella*&nbsp;
 
 
 
