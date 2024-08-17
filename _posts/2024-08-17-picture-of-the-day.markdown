@@ -5,10 +5,14 @@ date: 2024-08-17 10:33:20 +0200
 categories: jekyll update
 ---
 
+I slept very well. Today I am feeling totally recovered from the working week.   
+
+Yesterday I started reading a very weird book. It is a guy from Jamaican ancestry growing up in the US. It is an easy read but I do not have an opinion about the content yet.   
 
 
 
-![hematina](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*hematina*&nbsp;
+
+![hematina]()*hematina*&nbsp;
 
 
 
