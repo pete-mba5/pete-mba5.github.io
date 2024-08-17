@@ -5,10 +5,14 @@ date: 2024-08-16 18:32:13 +0200
 categories: jekyll update
 ---
 
+I finally configured my Corporate Mac. It is exactly what I wanted. I am happy. It works perfectly.   
+
+I am starting to feel some pain in my left leg. It is very strange because lately I am just swimming and not running.   
 
 
 
-![denudant](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*denudant*&nbsp;
+
+![denudant](https://lh3.googleusercontent.com/pw/AP1GczPgblNNOb4eIqgJqI9muFYsk1cHFNi30XoAaizdNHuhjptxzfS9WzIKsre-nUjmcDG5jYzYfZGVrA5p6tw2a3NQaPrlmt_YQzrvbjuN3Zs-fhKgIZs=w0)*denudant*&nbsp;
 
 
 
