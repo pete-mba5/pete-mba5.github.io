@@ -5,10 +5,14 @@ date: 2024-08-18 07:12:56 +0200
 categories: jekyll update
 ---
 
+It is raining.   
+
+Maybe I'll have to change the plan for today.   
+
+Yesterday I got bored with the Jamaican boy read and started the "Prophet Song" by Paul Lynch. It is ok so far.
 
 
-
-![vellutet](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*vellutet*&nbsp;
+![vellutet]()*vellutet*&nbsp;
 
 
 
