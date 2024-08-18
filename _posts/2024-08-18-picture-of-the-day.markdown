@@ -9,7 +9,9 @@ It is raining.
 
 Maybe I'll have to change the plan for today.   
 
-Yesterday I got bored with the Jamaican boy read and started the "Prophet Song" by Paul Lynch. It is ok so far.
+Yesterday I got bored with the Jamaican boy read and started the "Prophet Song" by Paul Lynch. It is ok so far.   
+
+Just after my early morning run starts a heavy rain. Perfect timing to cool down, but what will happen with swimming today?
 
 
 ![vellutet]()*vellutet*&nbsp;
