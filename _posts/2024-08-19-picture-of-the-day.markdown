@@ -5,10 +5,14 @@ date: 2024-08-19 16:33:45 +0200
 categories: jekyll update
 ---
 
+I went to swim in Durlach. It was almost empty. It was a good training.   
+
+This week I am going to work around 4h/day. I need to reduce the extra time.   
+
+Let's invest the additional free time for some experiment. I want to manufacture my own fresh cheese.
 
 
-
-![omega](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*omega*&nbsp;
+![omega](https://lh3.googleusercontent.com/pw/AP1GczNqK5-4IH9l_CqR3Ltwx8kNSxA9KjYI8PXTQSc31l4c5cHlDNdUElp-eZfQTu-AUjgi-4hfrnyhYTyeTRnGF45YWfH5RbuMmV8SebWRHlvuJuqDwEE=w0)*omega*&nbsp;
 
 
 
