@@ -20,7 +20,7 @@ We were just 2 people in every lane. We are very privileged for these swimming f
 
 
 
-![vellutet]()*vellutet*&nbsp;
+![vellutet](https://lh3.googleusercontent.com/pw/AP1GczM57HSURaerVhKG_RWQa8aA-BUyU2i28hAbjpbYf9cLb4wQ7bgpyYglxHjUldOq7r64STwq8M8CArdRWIL8jL9svabo0xkp2PtmhHSXojENLRg-xbw=w0)*vellutet*&nbsp;
 
 
 
