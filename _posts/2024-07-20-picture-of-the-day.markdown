@@ -9,7 +9,7 @@ It is amazing how small stupid things get you busy and preocupied.
 
 
 
-![nou](https://lh3.googleusercontent.com/pw/AP1GczPrKoDndEhbpeXPlzDKvyuW3TiGdEEzYBMTvl9jz-6ikXT-fuTyhj5eFm061fDpOlDIX-hNATICv23F1HS8xEonYtsbcup5J_VNhnRpONGw-1EcNCU=w0)*nou*&nbsp;
+![nou](https://lh3.googleusercontent.com/pw/AP1GczNXpEFSwF-mV6HbBon3siTkE3KhwcUNE6SWzXDMhHWhgxRzHH7csD_Q0xnFcGIkFDJ8Vvj0SH1qQBN3e38Ku7ZmodBHdiblanIiu9cO1ThB4LEzsZU=w0)*nou*&nbsp;
 
 
 
