@@ -5,10 +5,12 @@ date: 2024-08-21 08:13:58 +0200
 categories: jekyll update
 ---
 
+I am listening to a podcast. I like the subject, the content, but I dislike how the guy laughs continuously. There is absolutely nothing to laugh at. Anyhow, I will try to listen to it again and extract the good advice.   
+
+It is raining. It wasn't in my plan. I will get wet.
 
 
-
-![oposada](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*oposada*&nbsp;
+![oposada]()*oposada*&nbsp;
 
 
 
