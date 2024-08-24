@@ -13,7 +13,9 @@ I am planning to do some chores at home today. One of the bathrooms today and th
 
 Yesterday evening I finished the book about wealth and stoics. I liked it. I would not recommend this read to anyone. Since I am 50 now, maybe it is a bit too late for implementing any of the recommendations, but I learnt something about the pension system I had overlooked. I need to investigate deeper and act. This is a priority A.   
 
-Today I am planning to read a little bit of fiction.
+Today I am planning to read a little bit of fiction.   
+
+I rode my new/old road bike. It is fast. I like it a lot.
 
 
 ![impereu]()*impereu*&nbsp;
