@@ -18,7 +18,7 @@ Today I am planning to read a little bit of fiction.
 I rode my new/old road bike. It is fast. I like it a lot.
 
 
-![impereu]()*impereu*&nbsp;
+![impereu](https://lh3.googleusercontent.com/pw/AP1GczNqTh2z3z-IvUhdWodcipGRJI9sYdCaLJ9Gy4ctQzoqe6pgnuNaGoL1DEGrnUzEWpjPb_0kdYPU69r24izqGVWjUZMelupdikry3xfzfZf85mXJnKc=w0)*impereu*&nbsp;
 
 
 
