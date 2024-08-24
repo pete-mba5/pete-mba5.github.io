@@ -5,6 +5,8 @@ date: 2024-08-23 07:54:34 +0200
 categories: jekyll update
 ---
 
+I had a crash while writing this entry. Below is what I could save. I am not wrinting it again.
+
 Yesterday evening I baked a masterpiece. 30mins preparation plus 1h in the oven. There is no rea$
 
 Late at night I was reading a book called "the Stoic Path to Wealth". I am liking it. Things sho$
