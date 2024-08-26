@@ -20,7 +20,8 @@ I will investigate if more time is better for static stretching.
 
 
 
-![tremolau]()*tremolau*&nbsp;
+![tremolau](https://lh3.googleusercontent.com/pw/AP1GczNZh-w4EufzZLb2Fq1FhG4a3SpokF0hGzNMDaR_M5Ot-BE3iZl8IiqY8EB9E51Si3erNu_-_w8mqDP1Ow9Rt3kDvZ3ZrymCtV_GEu1CozlwQ_uBY5U=w0
+)*tremolau*&nbsp;
 
 
 
