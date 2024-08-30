@@ -18,7 +18,7 @@ Barca Stadium "Camp Nou" is still not finished. I really do not know if my kids 
 
 
 
-![orinen]()*orinen*&nbsp;
+![orinen](https://lh3.googleusercontent.com/pw/AP1GczMZ6GpvEdQWQvR3l2vg-YQHzWHWbbPxVF0M1-zRa4iFPmYDd1ytRS1I7IPxs7dZJz70ny8ErAI7PEnQl73lYjiYpWZN05ExJ3jAGCWv9cTzHcC2Sa0=w0)*orinen*&nbsp;
 
 
 
