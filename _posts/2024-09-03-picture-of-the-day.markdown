@@ -5,10 +5,17 @@ date: 2024-09-03 10:27:28 +0200
 categories: jekyll update
 ---
 
+Show is over. Tomorrow we will return home. It is raining. I will drive slower than planned.   
+
+I keep reading the stoicism letters' book. It is short. I do not have a lot of time for reading these days. Always busy.   
+
+We had rice for lunch. Brauli was leading the operations. It was very tasty.   
 
 
 
-![jaquotot](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*jaquotot*&nbsp;
+
+
+![jaquotot]()*jaquotot*&nbsp;
 
 
 
