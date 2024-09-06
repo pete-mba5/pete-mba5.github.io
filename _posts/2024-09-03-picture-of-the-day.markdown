@@ -15,7 +15,7 @@ We had rice for lunch. Brauli was leading the operations. It was very tasty.
 
 
 
-![jaquotot]()*jaquotot*&nbsp;
+![jaquotot](https://lh3.googleusercontent.com/pw/AP1GczNr7qMvX9bjDdUSUt-RmP-KacNfCb2fNMisVP1JV0sYiyfPfXEyTbQ_ExCDMRdc7YBLJvriWBb0tY5Au2vQbFDVOhnfMIHYamjPZCwhrbONgRZyIMw=w0)*jaquotot*&nbsp;
 
 
 
