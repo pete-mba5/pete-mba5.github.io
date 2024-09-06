@@ -14,7 +14,7 @@ I am bringing home two new species.
 
 
 
-![moca]()*moca*&nbsp;
+![moca](https://lh3.googleusercontent.com/pw/AP1GczNTR3906P68beMk---EqedyeVa4GTkjdM3nxKG2BDWCLXCd6u2FY8kFuBOVhFFmbHkqyiHXuT6QEypSHI7LW45FwPf7rlCbA-6B03tqs27AYi1iJHw=w0)*moca*&nbsp;
 
 
 
