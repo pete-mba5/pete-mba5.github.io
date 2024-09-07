@@ -5,10 +5,20 @@ date: 2024-09-07 10:24:48 +0200
 categories: jekyll update
 ---
 
+Today is my dad's birthday. He made it. Unbelievable.   
+
+Vacuum cleaner is broken. A plastic part was destroyed. I found some spare parts in the internet. It is not the single plastic part but the whole head. It is a reasonable price. I will order it. Next week it will be working again.   
+
+Yesterday in the late afternoon I got quite annoyed by loud music. I was thinking a little bit and I believe it is not the volume but the singer voice what really makes me mad. I cannot stand this Kate Bush smurf tone.  
+
+I read a lot. The stoic letters' book is almost finished. I am starting to feel a little bit bored with repetitive lessons.   
+
+Yesterday while swimming I found again that the smartwatch was not measuring the distance. I thought for a couple of seconds and decided to ignore it. I swam the 500m and this is what is important. I mentally calculated the pace and made me happy too.   
+
+I have a shoulder-neck pain since some days. I stopped TWYOB and running altogether. Maybe it is due to jumping	in the trampolines. Let's wait a couple of days more.
 
 
-
-![forquen](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*forquen*&nbsp;
+![forquen]()*forquen*&nbsp;
 
 
 
