@@ -5,10 +5,15 @@ date: 2024-09-09 07:45:47 +0200
 categories: jekyll update
 ---
 
+UX training. I liked a lot.  
+
+I just solved the Rubik. I am happy.   
 
 
 
-![verdeny](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*verdeny*&nbsp;
+
+
+![verdeny](https://lh3.googleusercontent.com/pw/AP1GczPK0-vXEgTiwH-b0sVL3moExB9JemTo-wLdPDf-bea11RDtVO_N65gC-QOg3tqz6Es4Hy6sAfrptQKXvwVulzhVD4vimIgtU-EeIqGpQONGCkiomPY=w0)*verdeny*&nbsp;
 
 
 
