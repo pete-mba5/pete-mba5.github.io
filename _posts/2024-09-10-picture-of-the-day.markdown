@@ -5,10 +5,27 @@ date: 2024-09-10 07:07:50 +0200
 categories: jekyll update
 ---
 
+I finished the stoicism book. I liked it enough to get the Seneca's one.   
+
+Today is the second part of the UX training.   
+
+The teacher recommended a book and I purchased it. I am thrilling to read it.   
+
+It is going to rain. I am going to bike to the office again.   
+
+I do not know if the pool season is going to continue. I check in the webpage and the information is not clear to me.   
 
 
 
-![ometen](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*ometen*&nbsp;
+
+
+
+
+
+
+
+
+![ometen]()*ometen*&nbsp;
 
 
 
