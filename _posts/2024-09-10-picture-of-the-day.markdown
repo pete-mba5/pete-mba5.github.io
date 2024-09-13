@@ -15,6 +15,8 @@ It is going to rain. I am going to bike to the office again.
 
 I do not know if the pool season is going to continue. I check in the webpage and the information is not clear to me.   
 
+I have no clue which is the nintendo account that is consuming the subscription. What a chaos.   
+
 
 
 
