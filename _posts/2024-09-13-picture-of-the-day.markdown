@@ -5,10 +5,22 @@ date: 2024-09-13 07:06:46 +0200
 categories: jekyll update
 ---
 
+I went to the office. There was no one there. I could work a lot.   
+
+From next week on, I will work almost exclusively from home.   
+
+I am still tired from the whole week. I will try to sleep well tonight.   
+
+The weather is crazy. Today it is snowing in some places of the Austrian Alps. In my city the temperature dropped a lot. Biking to the office without gloves was very painful today.   
 
 
 
-![lapiaz](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*lapiaz*&nbsp;
+
+
+
+
+
+![lapiaz]()*lapiaz*&nbsp;
 
 
 
