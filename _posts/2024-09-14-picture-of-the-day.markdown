@@ -5,10 +5,20 @@ date: 2024-09-14 10:50:36 +0200
 categories: jekyll update
 ---
 
+Quiet day.   
+
+We went again to the Deliburger. It is as good as always.   
+
+Very good news with the Ficus. It will grow healthy at home!   
 
 
 
-![oposa](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*oposa*&nbsp;
+
+
+
+
+
+![oposa](https://lh3.googleusercontent.com/pw/AP1GczPonHNMwRBthXxmmDakYOECK6om8q7Ll07QkrgWEtnVDgfhfnwP1AbfYRBKv10CvZpaH-gLZd5rntlm0AIBLAwU5HYatoO8SICHqPMst8OdMGtvUJ4=w0)*oposa*&nbsp;
 
 
 
