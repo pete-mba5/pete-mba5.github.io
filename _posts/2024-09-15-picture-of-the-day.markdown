@@ -5,10 +5,14 @@ date: 2024-09-15 14:52:04 +0200
 categories: jekyll update
 ---
 
+I ran my first 12km in weeks. I felt good. I met the marathonians. I totally forgot about the event. I took a picture and continued my run.   
+
+While listening to a podcast, I discovered the next book I want to read. It is called "Breathe" from James Nestor. For the time being I am reading the Seneca's letters. To be very honest, I find most of them totally silly and boring. Let's see if this improves somewhow.   
 
 
 
-![judicant](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*judicant*&nbsp;
+
+![judicant](https://lh3.googleusercontent.com/pw/AP1GczMlzFsPPMlNCMJil8vqtBwLkwtW-xew8anLaACY6o-zvO7HtRzL8SCqDEn2XgrHN92RE9jJzOJGKFrk6A8oueBgElEogXdxwHS6kN2CaTj6NRGl3es=w0)*judicant*&nbsp;
 
 
 
