@@ -9,7 +9,11 @@ Great day working from home. It was like sommer again.
 
 I closed one my oldest paypal accounts. I did not remember I still had it. I got roughly 30euros. Not bad. This week I also receoverd some old crypto wallet and contained less than this amount.   
 
-It is highly probable that tonight we are going to watch Deadpool and Wolverine at the theater.
+It is highly probable that tonight we are going to watch Deadpool and Wolverine at the theater.    
+
+I am reading an interesting book about breathing. Maybe everything is a lie, but I am liking the reading.   
+
+
 
 
 
