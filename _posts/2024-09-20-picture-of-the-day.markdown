@@ -5,10 +5,16 @@ date: 2024-09-20 08:06:31 +0200
 categories: jekyll update
 ---
 
+Great day working from home. It was like sommer again.   
+
+I closed one my oldest paypal accounts. I did not remember I still had it. I got roughly 30euros. Not bad. This week I also receoverd some old crypto wallet and contained less than this amount.   
+
+It is highly probable that tonight we are going to watch Deadpool and Wolverine at the theater.
 
 
 
-![discorde](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*discorde*&nbsp;
+
+![discorde()*discorde*&nbsp;
 
 
 
