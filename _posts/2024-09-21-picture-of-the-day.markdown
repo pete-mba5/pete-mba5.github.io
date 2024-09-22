@@ -4,11 +4,19 @@ title:  "quallar"
 date: 2024-09-21 07:44:46 +0200
 categories: jekyll update
 ---
+We could not watch the film yesterday. It was FSK16 and my kids are not old enough. We went to eat a Deliburgers. They were happy too.   
+
+I read a little bit more from the breathing book. I took a weird note "too much oxygen in my body wouldn't help me but hurt me". Another one was "it's a method our bodies use to stay balanced and grounded to the rhythms of the cosmos". We I read this, I rolled my eyes and thought immediately, Bullshit. I kept reading. In this book the author mentions "the eye of revelation". I will read it too.   
+
+I will paint the black garden door today.   
 
 
 
 
-![quallar](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*quallar*&nbsp;
+
+
+
+![quallar]()*quallar*&nbsp;
 
 
 
