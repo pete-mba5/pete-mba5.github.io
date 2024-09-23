@@ -16,7 +16,7 @@ I continue reading the breathing book. I highlighted that CO2 is more important 
 
 
 
-![aiguota]()*aiguota*&nbsp;
+![aiguota](https://lh3.googleusercontent.com/pw/AP1GczOGRS1MAN_7ukD1v8LxEMHIavYJLkCUw7wtvsmQdkz4-DYv6b2cHtYAckqN6KA5th20-GkX0bwYPn-Yz1BGLvzvDA2jCDoN3YrtxpZitD43uRcq2YE=w0)*aiguota*&nbsp;
 
 
 
