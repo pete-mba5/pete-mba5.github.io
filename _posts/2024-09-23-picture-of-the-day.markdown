@@ -5,10 +5,18 @@ date: 2024-09-23 21:25:05 +0200
 categories: jekyll update
 ---
 
+I am feeling a little bit sick. Winter arrived. First shower caught me while biking.   
+
+The Tibetan Rites books resulted to be absurdly dumb. I do not believe a word. At least they were very short and did not waste a lot of time.   
+
+I continue reading the breathing book. I highlighted that CO2 is more important the O2. Thrilling for reading the reasons why.   
 
 
 
-![aiguota](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*aiguota*&nbsp;
+
+
+
+![aiguota]()*aiguota*&nbsp;
 
 
 
