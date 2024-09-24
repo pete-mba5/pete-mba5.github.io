@@ -5,10 +5,12 @@ date: 2024-09-24 16:34:36 +0200
 categories: jekyll update
 ---
 
+It was an intense day. I accomplished a lot. My most precious achivement is preparing the 7l Kombucha.   
+
+I am starting to feel very well with the Mac.
 
 
-
-![gabiejau](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*gabiejau*&nbsp;
+![gabiejau](https://lh3.googleusercontent.com/pw/AP1GczO4MFJ6n-memjNmZ2r6JVH6yBb2AEdKI6EHC9JLOZspukTy0NwNt4yo0kdcip3pHfHgA1lhqwOS6N4sbHnImkeBLkuUktDBNbiKKJYdcIaPNousgC0=w0)*gabiejau*&nbsp;
 
 
 
