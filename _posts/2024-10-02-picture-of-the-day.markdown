@@ -5,10 +5,10 @@ date: 2024-10-02 09:16:00 +0200
 categories: jekyll update
 ---
 
+Today we will try handball training with Tim. Fingers crossed.
 
 
-
-![jure](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*jure*&nbsp;
+![jure](https://lh3.googleusercontent.com/pw/AP1GczM4uedrdwGEy6-0at7I6T-tEgPjoE-mPc1ZfzSHgjYQpWUzwc82P3tB8fABzlLjVI1VizKPHDr0MEPbrWaUyN_ACJv_ZOrjPIQLnTOZfWb7nwAcKJE=w0)*jure*&nbsp;
 
 
 
