@@ -4,6 +4,7 @@ title:  "adaptada"
 date: 2024-10-04 07:41:53 +0200
 categories: jekyll update
 ---
+I ran 12k with only nasal breathing.
 
 
 
