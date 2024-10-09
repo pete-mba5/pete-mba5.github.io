@@ -10,7 +10,7 @@ I am having a horrible headache. Maybe I got a cold. My nose is running.
 
 I cannot focus on stuff.   
 
-I cooked a pretty good bolognese sause today.   
+I cooked a pretty good bolognese sauce today.   
 
 It is raining and will rain the whole week. Good night.
 
