@@ -4,11 +4,19 @@ title:  "reta"
 date: 2024-10-15 07:55:37 +0200
 categories: jekyll update
 ---
+My stomach is not ok today.   
+
+I will go to the office by car.   
+
+I slept pretty bad.   
+
+I need to investigate when was the last line up of the Alfa.   
 
 
 
 
-![reta](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*reta*&nbsp;
+
+![reta]()*reta*&nbsp;
 
 
 
