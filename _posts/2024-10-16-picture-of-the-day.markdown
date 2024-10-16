@@ -5,10 +5,11 @@ date: 2024-10-16 07:42:51 +0200
 categories: jekyll update
 ---
 
+Let's switch the kids.   
 
 
 
-![quarto](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*quarto*&nbsp;
+![quarto]()*quarto*&nbsp;
 
 
 

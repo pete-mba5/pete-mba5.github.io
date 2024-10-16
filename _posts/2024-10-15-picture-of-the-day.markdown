@@ -16,7 +16,7 @@ I need to investigate when was the last line up of the Alfa.
 
 
 
-![reta]()*reta*&nbsp;
+![reta](https://lh3.googleusercontent.com/pw/AP1GczOA5XgRjxTXUbDXUDYiVT20Ws9zZnMLNm2s-Jq0vF-sJG0-8DQ6bDRcn7TRMiXqrlIRxOh8U_l4UKFYG5MYpWaei2FdLyfNkgvaCy1ioeuc0F_gc-o=w0)*reta*&nbsp;
 
 
 
