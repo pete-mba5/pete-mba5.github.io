@@ -5,10 +5,18 @@ date: 2024-10-17 21:22:35 +0200
 categories: jekyll update
 ---
 
+Listened in a Podcast: "I am a doctor, but I am not a real doctor". I had to laugh. The rest of the podcast was garbage as usual.   
+
+I realized that podcast are mostly starting to have too many commercial interruptions. Maybe it is time to stop listening to them.   
+
+Harari's book is starting to annoy me with to many Religious explanations that I really do not want.   
+
+   
 
 
 
-![honrar](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*honrar*&nbsp;
+
+![honrar](https://lh3.googleusercontent.com/pw/AP1GczMUbvczffQ7pnulEgpujndEwPABeSIjAxjb7pDOFezK9im36SmzWyCwDcvIXxunQ3E-6iyCnuh91GTSKaCHHKHQLlbDC-jn826VC_W1ygMf2ARnavY=w0)*honrar*&nbsp;
 
 
 
