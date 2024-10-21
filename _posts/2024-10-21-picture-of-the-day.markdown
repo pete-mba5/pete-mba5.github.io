@@ -5,10 +5,14 @@ date: 2024-10-21 07:20:57 +0200
 categories: jekyll update
 ---
 
+After some hours listening to Biohacking, please let me die in peace whenever it is my time.   
+
+Harari's book is starting to be boring and at least for me nonsense. Looking for the end.   
 
 
 
-![iberut](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*iberut*&nbsp;
+
+![iberut](https://lh3.googleusercontent.com/pw/AP1GczM9FzOKs8FjDyyeIyVbWMiUHds1EaWcxfFDoL-rIXQcQnY2vVJpWEhKVchK4TWMHJkGbePC4fIPNsJdpL0VoyUTkaB4otMbhu2sriGvEzaI7hGUEPI=w0)*iberut*&nbsp;
 
 
 
