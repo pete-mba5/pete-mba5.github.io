@@ -1,14 +1,14 @@
 ---
 layout: post
-title:  "legal"
-date: 2024-10-25 07:02:31 +0200
+title:  "acotxen"
+date: 2024-10-25 07:03:37 +0200
 categories: jekyll update
 ---
 
 
 
 
-![legal](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*legal*&nbsp;
+![acotxen](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*acotxen*&nbsp;
 
 
 
