@@ -19,7 +19,7 @@ Listened in a podcast "I am pretty smart". I did not stopped it. I am amazed of 
 
 
 
-![procurem](https://lh3.googleusercontent.com/pw/AP1GczMHV3-DzVDWKRWROSPiQyC4JcLrhQuexm25o_CvsWVBJ8EhhPc3rJTuhyl5T8xh9HFLAf3rDFvne3YOYzFFMETK8dolatSGO-uCkP0eBcwZvUZndM4=w0)*procurem*&nbsp;
+![procurem](https://lh3.googleusercontent.com/pw/AP1GczM7NI3lIUoXJzlfLNOZ9qjPa0b5k-8qrvBQynJz99fNJggpeIEosHEqtXH86O5UYvDgUBbQq1CVeatQqQFhfgcO-1p0OvxgewFw93a1X8xlprlQ35I=w0)*procurem*&nbsp;
 
 
 
