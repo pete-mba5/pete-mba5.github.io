@@ -14,7 +14,7 @@ I removed all my paper memories from the kitchen walls. I will need to repaint t
 
 
 
-![xarnego]()*xarnego*&nbsp;
+![xarnego](https://lh3.googleusercontent.com/pw/AP1GczOREjx8Mu1Xis69rBCPTz0i1YA1XZcHrBkcpdAl9NsL_GfyVNgnHfIUIVt6cApvPDx82iC27XHrpII6D0vFs7yQYGluHP-pMeSqt9Of-2tGBsuqY1A=w0)*xarnego*&nbsp;
 
 
 
