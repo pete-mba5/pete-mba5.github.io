@@ -5,10 +5,16 @@ date: 2024-11-15 06:50:11 +0100
 categories: jekyll update
 ---
 
+What a week. I cannot wait for starting the weekend.   
+
+Yesterday I received my last spare part for the bike repair.  
+
+I removed all my paper memories from the kitchen walls. I will need to repaint them in white.   
 
 
 
-![xarnego](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*xarnego*&nbsp;
+
+![xarnego]()*xarnego*&nbsp;
 
 
 
