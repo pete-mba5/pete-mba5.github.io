@@ -8,7 +8,7 @@ categories: jekyll update
 
 
 
-![fargava](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*fargava*&nbsp;
+![fargava](https://lh3.googleusercontent.com/pw/AP1GczNr08sys8XW830tlwgXszJD3jMn7nltmJRlKHG-vf5rhL3hBBr8vaIverbrYQ7LPQ2xpwxm7MgbQtzrrh95xIuOHAZoZQD0Ag06cc-RgFcJ7z2EbHs=w0)*fargava*&nbsp;
 
 
 
