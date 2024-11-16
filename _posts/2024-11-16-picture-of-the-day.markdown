@@ -4,11 +4,17 @@ title:  "jaspieu"
 date: 2024-11-16 10:16:26 +0100
 categories: jekyll update
 ---
+Yesterday I managed to order my very first domain. I also order my own server. I will learn about independence technology with Derek Sivers.   
+
+At 4:07am I could not sleep any more. My stomach is aching a lot.   
+
+Harari's book is getting more interesting, but anyhow, the author is very repetitive with his narrative.   
 
 
 
 
-![jaspieu](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*jaspieu*&nbsp;
+
+![jaspieu]()*jaspieu*&nbsp;
 
 
 
