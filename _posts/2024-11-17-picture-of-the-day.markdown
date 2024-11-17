@@ -5,10 +5,20 @@ date: 2024-11-17 17:24:25 +0100
 categories: jekyll update
 ---
 
+Listened in a film: "Hell, you can even even get married here. Divorced, too. Then you can come back an drown your sorrows. Whole circle of life thing."   
+
+It was very cold today. I brought my most important plants inside. We are going to reach below 0°C this week.   
+
+I have read a couple more chaters of Harari. It is ok but I cannot progress too much. It bores me.   
+
+I investigated about a MacOS, openBSD version of Keepass. Everything ready.   
 
 
 
-![eductiu](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*eductiu*&nbsp;
+
+
+
+![eductiu]()*eductiu*&nbsp;
 
 
 
