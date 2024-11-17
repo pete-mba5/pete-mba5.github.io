@@ -18,7 +18,7 @@ I investigated about a MacOS, openBSD version of Keepass. Everything ready.
 
 
 
-![eductiu]()*eductiu*&nbsp;
+![eductiu](https://lh3.googleusercontent.com/pw/AP1GczPlCImIaz13n512mILsUyfc6d6c4XWNUJUs6XbnymoQlKjNli2aVmSe_kY5eZbOiv2qhoFNLd_gywU5uKZgcosMFfZ5Y1ZXIawZZ2xATQh-hZOsfTw=w0)*eductiu*&nbsp;
 
 
 
