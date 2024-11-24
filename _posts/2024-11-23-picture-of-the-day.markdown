@@ -14,7 +14,8 @@ Yesterday I ate something wrong. I woke up around 3am with a heavy sense of acid
 Bitcoin almost reach 100000USD yesterday. Crazy. The best part of it is, I really do not understand the reasoning of this pricing. I have read some books about crypto though.
 
 
-![nassos]()*nassos*&nbsp;
+![nassos](https://lh3.googleusercontent.com/pw/AP1GczNwQaooOky5i7LL8veEVejAWeUYCiNdvOl-3wjovr36gyPR3D3KTmMmQXirMqHPUphSHYwA_5skd_aIryvMm7hsyGBsHRg5x3R3gomd_PjTotURtiU=w0
+)*nassos*&nbsp;
 
 
 
