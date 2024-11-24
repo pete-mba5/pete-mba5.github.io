@@ -9,7 +9,7 @@ Today we had summer again. Unbelievable. While running in the forest I saw one g
 
 I worked in the garden for a while. Maybe I have finally killed my lavender. Let's see in spring.   
 
-I will finish Harari's book today. Yesterday I read a very strange piece about the blockchain. The author seems to fear that governments owning 51% of it, will be able to remove the histor tracking. I cannot get it, since the blockchain is decentralized and one of the USP is the track of every single operation. Anyhow, I will sleep well tonight.   
+I will finish Harari's book today. Yesterday I read a very strange piece about the blockchain. The author seems to fear that governments owning 51% of it, will be able to remove the history tracking. I cannot get it, since the blockchain is decentralized and one of the USP is the track of every single operation. Anyhow, I will sleep well tonight.   
 
 
 
