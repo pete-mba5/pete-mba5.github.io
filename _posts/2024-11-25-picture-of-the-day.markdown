@@ -5,10 +5,17 @@ date: 2024-11-25 06:39:10 +0100
 categories: jekyll update
 ---
 
+It is dark. It is not cold. It is a weird winter. I will go to the office with the bike. Maybe I will go to swim in the afternoon.   
+
+During the weekend I had no time to re-install the MacOS in my new SSD.   
+
+My new personal domain was approved and ready. I can continue with the installation of the server. I really do not remember where I left it, thus maybe I will need to start from scratch.  
+
+I finished Harari's book. I cannot recommend it at all. After checking my own thoughts, I overall found it very boring. Now I will continue reading "re-architecting trust" from Omid Malekan. It is about crypto. It is from 2022 and maybe too old for this subject.   
 
 
 
-![ungleu](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*ungleu*&nbsp;
+![ungleu]()*ungleu*&nbsp;
 
 
 
