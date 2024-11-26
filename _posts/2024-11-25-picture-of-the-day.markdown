@@ -15,7 +15,7 @@ I finished Harari's book. I cannot recommend it at all. After checking my own th
 
 
 
-![ungleu]()*ungleu*&nbsp;
+![ungleu](https://lh3.googleusercontent.com/pw/AP1GczMblyRU_doeOGvP-EJsurMAehBNbDEDr429qTOVipHzjbJucUjtn5LWxJHIchMmX7aM_aDmqlDd4_jTMD7Hcr_-4A_22etFDL_X4vOBc05qV5Lm_uk=w0)*ungleu*&nbsp;
 
 
 
