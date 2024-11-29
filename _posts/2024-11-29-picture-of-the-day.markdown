@@ -8,12 +8,18 @@ If everthing runs as expected, this will be one of the latest entries in this pa
 
 It is cold. I managed to train in the early morning. Now I have the rest of the day at my disposal.   
 
-I am reading "Trust". It is still interesting me. I am happy for it.
+I am reading "Trust". It is still interesting me. I am happy for it.   
+
+New MacOS installation has been a success. Getting closer.  
 
 
 
 
-![galvany]()*galvany*&nbsp;
+
+
+
+![galvany](https://lh3.googleusercontent.com/pw/AP1GczNsUG_eud_fnHjEgNLiRRnAVsQO80tIUlHgRcnEey8OURvXvYKTWNqDGPdXIPKN0eQBQxOsErVyN1q-O5shWb-Q4_kbZlJ8ZSOHXW1o9xGv5J-H5oU=w0
+)*galvany*&nbsp;
 
 
 
