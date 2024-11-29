@@ -5,7 +5,7 @@ date: 2024-11-28 07:16:29 +0100
 categories: jekyll update
 ---
 
-This was a very insteresting light. It was lika in sunset at noon. Very beautiful.   
+This was a very insteresting light. It was like a sunset at noon. Very beautiful.   
 
 
 
