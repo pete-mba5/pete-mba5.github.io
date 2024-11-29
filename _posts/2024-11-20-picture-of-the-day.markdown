@@ -5,10 +5,13 @@ date: 2024-11-20 13:17:15 +0100
 categories: jekyll update
 ---
 
+This is just a wrap-up of my latest pictures.   
+
+Busy week where I could not find the time to update this project.
 
 
 
-![esvare](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*esvare*&nbsp;
+![esvare](https://lh3.googleusercontent.com/pw/AP1GczP0OE8TXjaui_TgRTgwVyUZkouuZAF12nMXBDFq-7kpIHg5KL39Ib2lBKPAOSIAUGfckI3gbx964J45ogGq0yghGBxuTLgpgM55LqVi2gDZG4VwYu0=w0)*esvare*&nbsp;
 
 
 
