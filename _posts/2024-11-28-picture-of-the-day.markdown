@@ -5,10 +5,13 @@ date: 2024-11-28 07:16:29 +0100
 categories: jekyll update
 ---
 
+This was a very insteresting light. It was lika in sunset at noon. Very beautiful.   
 
 
 
-![no](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*no*&nbsp;
+
+![no](https://lh3.googleusercontent.com/pw/AP1GczPLORY5YT1WwY2pw5V3mVO3lYyp36SWAsss14PQ4hBE2i5lQ7wuIgZWQomd9PcxDdKp_mpPBSobH68dipCcQWBFgWcD7-eRFn3uJ8Fb_o5Ng5fR_Qg=w0
+)*no*&nbsp;
 
 
 
