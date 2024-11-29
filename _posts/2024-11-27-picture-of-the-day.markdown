@@ -5,10 +5,14 @@ date: 2024-11-27 06:59:12 +0100
 categories: jekyll update
 ---
 
+This was a dead rabbit in the company campus. Unbelievable.   
+
+I went to swim while Tim was training and it was too much stress for me. Next time, I will simply skip it.   
 
 
 
-![plugim](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*plugim*&nbsp;
+
+![plugim](https://lh3.googleusercontent.com/pw/AP1GczOt4e9rTC91oaxZIQXfHtXt-3KQSk_KVH7RFGbo4wUN_H7wAP4h6QOMlu_mpqkdHVrT61dTI8swYhbwGH4ZPTeOz_dmFChJaY3Hcd5JaW6nM43g1So=w0)*plugim*&nbsp;
 
 
 
