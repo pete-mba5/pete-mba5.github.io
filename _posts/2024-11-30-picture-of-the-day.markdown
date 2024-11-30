@@ -4,11 +4,17 @@ title:  "dallador"
 date: 2024-11-30 06:48:59 +0100
 categories: jekyll update
 ---
+I could not sleep more today. Anyhow I got a 81% sleep score. One of the best days of the week.   
+
+I enjoyed a new "Trust" chapter.   
+
+Since I am planning to host my this daily pictures in an own host, I need to learn some new/old html skills. It is going to be intense the next days.   
 
 
 
 
-![dallador](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*dallador*&nbsp;
+
+![dallador]()*dallador*&nbsp;
 
 
 
