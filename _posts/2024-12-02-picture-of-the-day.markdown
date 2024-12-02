@@ -4,11 +4,21 @@ title:  "bagueny"
 date: 2024-12-02 06:22:57 +0100
 categories: jekyll update
 ---
+I am still here. I could not progress as much as I wanted during the weekend.   
+
+Yesterday was a good day. I collected one big and nice pot for my elephant ear plant. I also cut massively the unwanted tree in the backyard.   
+
+I found some time to read my current book and I enjoyed a lot.   
+
+Today I am planning to bike to the office and in the afternoon swim a little bit with the turtles.   
 
 
 
 
-![bagueny](https://lh3.googleusercontent.com/pw/AP1GczNQrQkajXV5dXzL26lOYDQtvWUxyyZbhKPiz6BOWncVR08BPf_A4P96XtM3HcmA3hkRw22-QeFOofY72LvvMUtZicjg0iGf5_TjKMdNjQXKnBHTJNU=w0)*bagueny*&nbsp;
+
+
+
+![bagueny]()*bagueny*&nbsp;
 
 
 
